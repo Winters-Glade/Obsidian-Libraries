@@ -1,0 +1,17 @@
+# Obsidian
+.trash/
+**/.obsidian/workspace.json
+**/.obsidian/workspace-mobile.json
+
+# OS files
+.DS_Store
+Thumbs.db
+Desktop.ini
+
+# IDE
+.vscode/
+.idea/
+
+# Other
+node_modules/
+*.log
