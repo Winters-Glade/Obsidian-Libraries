@@ -9,7 +9,7 @@
 [![License: MIT](https://img.shields.io/badge/License-MIT-yellow.svg?style=flat-square)](https://opensource.org/licenses/MIT)
 [![Obsidian](https://img.shields.io/badge/Made%20for-Obsidian-7C3AED?style=flat-square&logo=obsidian)](https://obsidian.md/)
 
-*Turn someone else's deep research into your own learning — instantly.*
+*Turn someone else's deep research into your own learning - instantly.*
 
 </div>
 
@@ -31,16 +31,16 @@
 
 ## 📖 About
 
-**Obsidian Libraries** is a growing collection of comprehensive, well-structured Obsidian knowledge vaults — each built around a specific subject, course, podcast series, or research area.
+**Obsidian Libraries** is a growing collection of comprehensive, well-structured Obsidian knowledge vaults - each built around a specific subject, course, podcast series, or research area.
 
 Every vault is a **fully self-contained Obsidian workspace** that includes:
 
-- 📝 **Detailed notes** — Hundreds of interconnected markdown files
-- 🗺️ **Maps of Content (MOCs)** — Thematic indexes for easy navigation
-- 🎨 **Pre-configured themes & plugins** — The same experience the original author had
-- 🔗 **Source links** — Every note traces back to its original material
+- 📝 **Detailed notes** - Hundreds of interconnected markdown files
+- 🗺️ **Maps of Content (MOCs)** - Thematic indexes for easy navigation
+- 🎨 **Pre-configured themes & plugins** - The same experience the original author had
+- 🔗 **Source links** - Every note traces back to its original material
 
-Whether you're a student, a lifelong learner, or just curious about a new subject, you can clone a vault, open it in Obsidian, and start exploring immediately — no setup required.
+Whether you're a student, a lifelong learner, or just curious about a new subject, you can clone a vault, open it in Obsidian, and start exploring immediately - no setup required.
 
 ---
 
@@ -48,7 +48,7 @@ Whether you're a student, a lifelong learner, or just curious about a new subjec
 
 ### 🌍 History102
 
-> *Deep dives into world history — from the ancient world to the modern era.*
+> *Deep dives into world history - from the ancient world to the modern era.*
 
 | | |
 |---|---|
@@ -60,7 +60,7 @@ Whether you're a student, a lifelong learner, or just curious about a new subjec
 
 **Overview**
 
-The **History102** vault contains detailed notes on over 100 episodes of the *History102* podcast and YouTube channel. The series, hosted by **Rudyard Lynch** and **Austin Padgett**, explores world history through a multidisciplinary lens — combining historical analysis with sociology, economics, evolutionary psychology, and philosophy.
+The **History102** vault contains detailed notes on over 100 episodes of the *History102* podcast and YouTube channel. The series, hosted by **Rudyard Lynch** and **Austin Padgett**, explores world history through a multidisciplinary lens - combining historical analysis with sociology, economics, evolutionary psychology, and philosophy.
 
 The notes are organized into thematic Maps of Content covering everything from the Ancient & Classical world to Cold War geopolitics, with dedicated MOCs for religions, steppe empires, interview episodes, and more.
 
@@ -78,7 +78,7 @@ These notes were compiled from the [History102 YouTube channel](https://www.yout
 
 ### 🔜 More Libraries Coming Soon
 
-This is just the beginning! Future vaults may include other deep-dive subjects. Stay tuned — or [contribute your own](#-adding-a-vault-to-your-library).
+This is just the beginning! Future vaults may include other deep-dive subjects. Stay tuned - or [contribute your own](#-adding-a-vault-to-your-library).
 
 ---
 
@@ -98,7 +98,7 @@ git clone https://github.com/Winters-Glade/Obsidian-Libraries.git
 
 #### 1. Get the Vault Files
 
-**Option A — Clone the whole repo (recommended)**
+**Option A - Clone the whole repo (recommended)**
 
 ```bash
 git clone https://github.com/Winters-Glade/Obsidian-Libraries.git
@@ -106,7 +106,7 @@ git clone https://github.com/Winters-Glade/Obsidian-Libraries.git
 
 This downloads all vaults at once. The repo is small (~3.3 MB with History102) and easy to update later with `git pull`.
 
-**Option B — Download a single vault**
+**Option B - Download a single vault**
 
 Visit the [repository](https://github.com/Winters-Glade/Obsidian-Libraries) on GitHub, navigate into the vault folder you want, and use the [Download Directory](https://download-directory.github.io/) tool by pasting the folder URL.
 
@@ -125,7 +125,7 @@ Visit the [repository](https://github.com/Winters-Glade/Obsidian-Libraries) on G
 
 #### 3. Start Exploring
 
-Once opened, begin at the vault's home note — typically named `*_HOME.md` — which serves as the central hub with links to all Maps of Content and major topics.
+Once opened, begin at the vault's home note - typically named `*_HOME.md` - which serves as the central hub with links to all Maps of Content and major topics.
 
 #### 4. Keeping Your Vaults Updated
 
@@ -168,7 +168,7 @@ chmod +x scripts/clone-vault.sh
 ```bash
 #!/usr/bin/env bash
 #===============================================================================
-# Obsidian Libraries — Vault Cloner for Linux / macOS
+# Obsidian Libraries - Vault Cloner for Linux / macOS
 # Clones selected vaults into ~/Documents/Obsidian Libraries
 #===============================================================================
 
@@ -187,7 +187,7 @@ YELLOW='\033[1;33m'
 NC='\033[0m' # No Color
 
 echo -e "${BOLD}${CYAN}══════════════════════════════════════════════${NC}"
-echo -e "${BOLD}${CYAN}   🏛️  Obsidian Libraries — Vault Cloner${NC}"
+echo -e "${BOLD}${CYAN}   🏛️  Obsidian Libraries - Vault Cloner${NC}"
 echo -e "${BOLD}${CYAN}══════════════════════════════════════════════${NC}"
 echo ""
 
@@ -198,13 +198,13 @@ if ! command -v git &>/dev/null; then
     exit 1
 fi
 
-# Step 1 — Clone (shallow) to temp
+# Step 1 - Clone (shallow) to temp
 echo -e "${BOLD}📥 Downloading vault catalog...${NC}"
 git clone --depth 1 --quiet "$REPO_URL" "$TEMP_DIR"
 echo -e "${GREEN}✓${NC} Catalog downloaded."
 echo ""
 
-# Step 2 — List available vaults (top-level directories excluding hidden/.md/.txt)
+# Step 2 - List available vaults (top-level directories excluding hidden/.md/.txt)
 echo -e "${BOLD}📚 Available Vaults:${NC}"
 echo ""
 
@@ -224,13 +224,13 @@ for dir in "$TEMP_DIR"/*/; do
         file_count=$(find "$dir" -maxdepth 1 -name "*.md" | wc -l)
         desc="$file_count markdown files"
     fi
-    echo -e "  ${BOLD}$INDEX.${NC} ${CYAN}$name${NC} — $desc"
+    echo -e "  ${BOLD}$INDEX.${NC} ${CYAN}$name${NC} - $desc"
     INDEX=$((INDEX + 1))
 done
 
 echo ""
 
-# Step 3 — Let user choose
+# Step 3 - Let user choose
 echo -e "Enter the ${BOLD}numbers${NC} of the vault(s) you want to clone"
 echo -e "(e.g., ${YELLOW}1${NC} for one vault, ${YELLOW}1 3${NC} for multiple, or ${YELLOW}all${NC} for everything):"
 read -p "→ " -r SELECTION
@@ -317,7 +317,7 @@ fi
 ```powershell
 <#
 .SYNOPSIS
-    Obsidian Libraries — Vault Cloner for Windows
+    Obsidian Libraries - Vault Cloner for Windows
     Clones selected vaults into %USERPROFILE%\Documents\Obsidian Libraries
 #>
 
@@ -328,7 +328,7 @@ $DestBase = Join-Path $env:USERPROFILE "Documents" "Obsidian Libraries"
 $TempDir = Join-Path $env:TEMP "$RepoName-$([System.IO.Path]::GetRandomFileName())"
 
 Write-Host "══════════════════════════════════════════════" -ForegroundColor Cyan -NoNewline
-Write-Host "🏛️  Obsidian Libraries — Vault Cloner" -ForegroundColor Cyan
+Write-Host "🏛️  Obsidian Libraries - Vault Cloner" -ForegroundColor Cyan
 Write-Host "══════════════════════════════════════════════" -ForegroundColor Cyan
 Write-Host ""
 
@@ -339,13 +339,13 @@ if (-not (Get-Command git -ErrorAction SilentlyContinue)) {
     exit 1
 }
 
-# Step 1 — Clone (shallow) to temp
+# Step 1 - Clone (shallow) to temp
 Write-Host "📥 Downloading vault catalog..." -NoNewline
 git clone --depth 1 --quiet $RepoUrl $TempDir 2>&1 | Out-Null
 Write-Host " done ✓" -ForegroundColor Green
 Write-Host ""
 
-# Step 2 — List available vaults
+# Step 2 - List available vaults
 $Vaults = Get-ChildItem -Path $TempDir -Directory | Where-Object { $_.Name -notmatch '^\.' } | Sort-Object Name
 Write-Host "📚 Available Vaults:" -ForegroundColor Cyan
 Write-Host ""
@@ -366,13 +366,13 @@ foreach ($vault in $Vaults) {
         $fileCount = (Get-ChildItem -Path $vault.FullName -Filter "*.md" -File).Count
         $desc = "$fileCount markdown files"
     }
-    Write-Host "  $Index. $($vault.Name) — $desc"
+    Write-Host "  $Index. $($vault.Name) - $desc"
     $VaultList += $vault
     $Index++
 }
 Write-Host ""
 
-# Step 3 — Let user choose
+# Step 3 - Let user choose
 $Selection = Read-Host "Enter the number(s) of the vault(s) you want (e.g., 1, '1 3', or 'all')"
 
 $SelectedVaults = @()
@@ -466,10 +466,10 @@ This vault would not exist without the original content created by the *History1
 | Role | Person | Links |
 |------|--------|-------|
 | **Co-Host** | Rudyard Lynch | [YouTube (WhatifAltHist)](https://www.youtube.com/@WhatifAltHist) |
-| **Co-Host** | Austin Padgett | — |
-| **Producer / Co-Host** | Erik Torenberg | — |
+| **Co-Host** | Austin Padgett | - |
+| **Producer / Co-Host** | Erik Torenberg | - |
 | **YouTube Channel** | History102 | [youtube.com/@History102-qg5oj](https://www.youtube.com/@History102-qg5oj) |
-| **Chronological Playlist** | — | [Watch in order](https://www.youtube.com/playlist?list=PLuIvAkuE_HoEZS6iNJZuedWWj24FTstTD) |
+| **Chronological Playlist** | - | [Watch in order](https://www.youtube.com/playlist?list=PLuIvAkuE_HoEZS6iNJZuedWWj24FTstTD) |
 
 The notes in this vault were compiled from the [History102 YouTube channel](https://www.youtube.com/@History102-qg5oj). Each individual note includes a direct link back to the source video. Please support the original creators by watching, liking, and subscribing to their channel.
 
