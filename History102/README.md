@@ -5,14 +5,14 @@
 
 ## 📖 About
 
-History102 is a YouTube channel and podcast exploring deep patterns in world history. Hosts Rudyard Lynch and Austin Padgett examine civilizations, wars, religions, and ideologies through a multidisciplinary lens — combining history, sociology, economics, and evolutionary psychology.
+History102 is a YouTube channel and podcast exploring deep patterns in world history. Hosts Rudyard Lynch and Austin Padgett examine civilizations, wars, religions, and ideologies through a multidisciplinary lens - combining history, sociology, economics, and evolutionary psychology.
 
 ## 🗂️ Vault Structure
 
-- **[[HISTORY102_HOME]]** — Main entry point with Maps of Content (MOCs) and quick navigation
-- **MOCs (Maps of Content)** — Thematic and period-based indexes that organize notes
-- **Individual Notes** — Deep dives into specific topics, eras, and figures
-- **Full Index** — Alphabetical listing of all notes
+- **[[HISTORY102_HOME]]** - Main entry point with Maps of Content (MOCs) and quick navigation
+- **MOCs (Maps of Content)** - Thematic and period-based indexes that organize notes
+- **Individual Notes** - Deep dives into specific topics, eras, and figures
+- **Full Index** - Alphabetical listing of all notes
 
 ### Periods Covered
 
