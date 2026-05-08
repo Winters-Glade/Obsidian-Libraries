@@ -1,0 +1,18 @@
+---
+title: "perplexity"
+tags: [concept, terms]
+aliases: []
+---
+
+# perplexity
+
+**perplexity** is a concept referenced in the Through the Bible with Pastor Chuck Smith series (C2000 and T2000).
+
+## Backlinks
+
+The following notes reference [[perplexity]]:
+
+- [[T2000/Perplexities and Answers, Jeremiah 12_1-11|Perplexities and Answers, Jeremiah 12:1-11]]
+
+---
+*This concept note was auto-generated to resolve wikilink references in the vault.*

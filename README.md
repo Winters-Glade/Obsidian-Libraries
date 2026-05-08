@@ -76,6 +76,39 @@ These notes were compiled from the [History102 YouTube channel](https://www.yout
 
 ---
 
+### 📖 ThroughTheBible
+
+> *Verse-by-verse Bible study through all 66 books - 7,562 notes and transcripts.*
+
+| | |
+|---|---|
+| **📄 Notes** | 7,562 interconnected markdown files |
+| **🗂️ Structure** | Full Bible index, verse-by-verse notes, topical teachings, concept indexes |
+| **📏 Size** | ~51 MB |
+| **🎨 Theme** | Everforest Enchanted (with Style Settings, Edge TTS, Broken Links plugins) |
+| **📅 Coverage** | All 66 books of the Bible (Genesis - Revelation) |
+
+**Overview**
+
+The **ThroughTheBible** vault is a comprehensive collection of notes and transcripts from Pastor **Chuck Smith**'s verse-by-verse teaching ministry. It covers the entire Bible through his *Through the Bible* (C2000) radio series, plus 600+ topical sermon teachings (T2000).
+
+The vault is organized with:
+- **C2000 Notes & Transcripts** - Verse-by-verse study through every chapter of the Bible
+- **T2000 Teachings** - 600+ topical sermons on doctrines, people, and practical Christian living
+- **Full Bible Index** - Every verse cross-referenced to its corresponding teaching
+- **Concept Indexes** - People, Places, Events, Terms, Doctrines, and Biblical References
+
+**Origin**
+
+These notes were compiled from the **Through the Bible** radio ministry of **Pastor Chuck Smith** (1927-2013), founder of the Calvary Chapel movement. His warm, verse-by-verse teaching style is broadcast worldwide through **The Word For Today** ministry.
+
+**Links**
+
+- 📻 [The Word For Today (twft.com)](http://twft.com)
+- 🎬 [Calvary Chapel YouTube Channel](https://www.youtube.com/@CalvaryChapelTWFT)
+
+---
+
 ### 🔜 More Libraries Coming Soon
 
 This is just the beginning! Future vaults may include other deep-dive subjects. Stay tuned - or [contribute your own](#-adding-a-vault-to-your-library).
@@ -104,7 +137,7 @@ git clone https://github.com/Winters-Glade/Obsidian-Libraries.git
 git clone https://github.com/Winters-Glade/Obsidian-Libraries.git
 ```
 
-This downloads all vaults at once. The repo is small (~3.3 MB with History102) and easy to update later with `git pull`.
+This downloads all vaults at once. The repo is ~55 MB total and easy to update later with `git pull`.
 
 **Option B - Download a single vault**
 
@@ -472,6 +505,20 @@ This vault would not exist without the original content created by the *History1
 | **Chronological Playlist** | - | [Watch in order](https://www.youtube.com/playlist?list=PLuIvAkuE_HoEZS6iNJZuedWWj24FTstTD) |
 
 The notes in this vault were compiled from the [History102 YouTube channel](https://www.youtube.com/@History102-qg5oj). Each individual note includes a direct link back to the source video. Please support the original creators by watching, liking, and subscribing to their channel.
+
+---
+
+### ThroughTheBible
+
+This vault is compiled from the public teaching ministry of **Pastor Chuck Smith** (1927-2013).
+
+| Role | Person | Links |
+|------|--------|-------|
+| **Teacher** | Pastor Chuck Smith | |
+| **Ministry** | The Word For Today | [twft.com](http://twft.com) |
+| **YouTube** | Calvary Chapel TWFT | [youtube.com/@CalvaryChapelTWFT](https://www.youtube.com/@CalvaryChapelTWFT) |
+
+Pastor Chuck Smith's *Through the Bible* (C2000) and *Topical Teachings* (T2000) series are freely available through The Word For Today ministry. These resources have been a blessing to millions worldwide. Please visit [twft.com](http://twft.com) to support the ministry and access additional materials.
 
 ---
 

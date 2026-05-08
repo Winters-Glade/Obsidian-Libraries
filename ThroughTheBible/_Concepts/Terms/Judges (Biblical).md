@@ -1,0 +1,18 @@
+---
+title: "Judges (Biblical)"
+tags: [concept, terms]
+aliases: [judges (biblical), Judges]
+---
+
+# Judges (Biblical)
+
+**Judges (Biblical)** is a concept referenced in the Through the Bible with Pastor Chuck Smith series (C2000 and T2000).
+
+## Backlinks
+
+The following notes reference [[Judges (Biblical)]]:
+
+- [[Pouring Out Your Soul 1 Samuel 1_15|Pouring Out Your Soul, 1 Samuel 1:15]]
+
+---
+*This concept note was auto-generated to resolve wikilink references in the vault.*

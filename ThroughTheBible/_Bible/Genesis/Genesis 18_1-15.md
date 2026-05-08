@@ -1,0 +1,32 @@
+---
+title: "Bible: Genesis 18:1-15"
+tags: [bible, genesis, law, ch18]
+book: Genesis
+chapter: 18
+verses: "1-15"
+category: Law
+---
+
+
+# Genesis 18:1-15
+
+
+## Passage
+
+> **1** And the LORD appeared unto him in the plains of Mamre: and he sat in the tent door in the heat of the day; {plain: Heb. plains} **2** And he lift up his eyes and looked, and, lo, three men stood by him: and when he saw {them}, he ran to meet them from the tent door, and bowed himself toward the ground, **3** And said, My Lord, if now I have found favour in thy sight, pass not away, I pray thee, from thy servant: **4** Let a little water, I pray you, be fetched, and wash your feet, and rest yourselves under the tree: **5** And I will fetch a morsel of bread, and comfort ye your hearts; after that ye shall pass on: for therefore are ye come to your servant. And they said, So do, as thou hast said. {comfort: Heb. stay} {are...: Heb. you have passed} **6** And Abraham hastened into the tent unto Sarah, and said, Make ready quickly three measures of fine meal, knead {it}, and make cakes upon the hearth. {Make ready...: Heb. Hasten} **7** And Abraham ran unto the herd, and fetcht a calf tender and good, and gave {it} unto a young man; and he hasted to dress it. **8** And he took butter, and milk, and the calf which he had dressed, and set {it} before them; and he stood by them under the tree, and they did eat. **9** And they said unto him, Where {is} Sarah thy wife? And he said, Behold, in the tent. **10** And he said, I will certainly return unto thee according to the time of life; and, lo, Sarah thy wife shall have a son. And Sarah heard {it} in the tent door, which {was} behind him. **11** Now Abraham and Sarah {were} old {and} well stricken in age; {and} it ceased to be with Sarah after the manner of women. **12** Therefore Sarah laughed within herself, saying, After I am waxed old shall I have pleasure, my lord being old also? **13** And the LORD said unto Abraham, Wherefore did Sarah laugh, saying, Shall I of a surety bear a child, which am old? **14** Is any thing too hard for the LORD? At the time appointed I will return unto thee, according to the time of life, and Sarah shall have a son. **15** Then Sarah denied, saying, I laughed not; for she was afraid. And he said, Nay; but thou didst laugh.
+>
+> — Genesis 18:1-15 (KJV)
+## Referenced By
+
+- [[Genesis 15-18.md]]
+
+## Cross-References
+
+- [[Genesis 16_1-16]]
+- [[Genesis 16_1–4]]
+- [[Genesis 17_1-27]]
+- [[Genesis 17_10–14]]
+- [[Genesis]]
+- [[Genesis 19_1-29]]
+- [[Genesis 19_1-3]]
+- [[Genesis 19_10-11]]

@@ -1,0 +1,22 @@
+{
+  "everforest-enchanted-theme@@background-image-enabled": true,
+  "everforest-enchanted-theme@@background-image-dark-url": "url(\"https://calvarychapel.com/wp-content/uploads/2022/06/CleanShot-2022-01-13-at-20.44.58.jpg\")",
+  "everforest-enchanted-theme@@background-image-pane-view": true,
+  "everforest-enchanted-theme@@ui-opacity": 0.85,
+  "everforest-enchanted-theme@@tab-opacity": 0.9,
+  "everforest-enchanted-theme@@pane-opacity": 0.9,
+  "everforest-enchanted-theme@@visual-parity-enabled": true,
+  "everforest-enchanted-theme@@custom-stacked-panes-enabled": true,
+  "everforest-enchanted-theme@@highlighted-folders": true,
+  "everforest-enchanted-theme@@disable-menu-animations": true,
+  "everforest-enchanted-theme@@enable-menu-blur": false,
+  "everforest-enchanted-theme@@menu-blur-radius": 1,
+  "everforest-enchanted-theme@@image-embed-enable-zoom": true,
+  "everforest-enchanted-theme@@image-embed-no-drag": true,
+  "everforest-enchanted-theme@@image-embed-stretch": true,
+  "everforest-enchanted-theme@@centered-tables": true,
+  "everforest-enchanted-theme@@full-width-tables": true,
+  "everforest-enchanted-theme@@rounded-tables": true,
+  "everforest-enchanted-theme@@background-image-position": "right",
+  "everforest-enchanted-theme@@background-image-light-url": "url(\"https://calvarychapel.com/wp-content/uploads/2022/06/CleanShot-2022-01-13-at-20.44.58.jpg\")"
+}

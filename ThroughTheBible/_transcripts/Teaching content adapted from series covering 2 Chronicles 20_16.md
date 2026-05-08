@@ -1,0 +1,171 @@
+---
+title: "Victory Through Praise — 2 Chronicles 20:16"
+source: "C2000 Series (adapted)"
+video_id: "1ixTYa_snZM"
+video_number: 57
+passage: "2 Chronicles 20:16"
+tags: [t2000-series, kingdom-era, pastor-chuck-smith]
+speaker: "Pastor Chuck Smith"
+series: "T2000 Topical Series"
+type: transcript
+processed: true
+transcript_source: "C2000 series (verse-by-verse teaching)"
+---
+
+# Teaching content adapted from C2000 series covering 2 Chronicles 20:16
+# Note: The T2000 topical video transcript was unavailable;
+# this content is from Pastor Chuck Smith's C2000 verse-by-verse teaching on 2 Chronicles 20:16
+
+This time, let's turn to 2 Chronicles chapter 19. We are dealing at the present time in this area of Scripture with the reign of Jehoshaphat, king over Judah. For the most part, Jehoshaphat was a good king. He did develop many spiritual reforms. There was one aspect about his reign that was not good and that was his desire to develop an affinity and friendship with Ahab, who was the king over the tribes of Israel in the north.
+
+Ahab was probably one of the most wicked of all of the kings over Israel. And Jehoshaphat, Jehoshaphat had some kind of a fascination and an endeavor to create an affinity and a friendship with him. Now the Bible says, Know ye not that friendship with the world is enmity with God? And if anybody represented the world in the worldly system, it would have been Ahab.
+
+So why Jehoshaphat, a righteous king, would ever seek to develop some kind of a friendship or relationship with this ungodly king of Ahab is difficult to understand. And the consequences, ultimate consequences of it were quite disastrous. Not to Jehoshaphat himself, but in the result of his son. And we'll get to that when we get to chapter 21.
+
+So Jehoshaphat had gone on up visited with Ahab, was invited by Ahab to come to watch the battle against the Syrians in Ramoth Gilead where Ahab was killed in battle. And so Jehoshaphat has now returned to Jerusalem, chapter 19. And Jehu, the son of Hanani, who was a prophet, went out to meet him. And he said, He said to him, should you help the ungodly and love them that hate the Lord?
+
+Therefore is wrath upon thee from before the Lord. So here he has been rebuked by the prophet of God. The rebuke, of course, coming from God for his love for the ungodly and his love for those that hate the Lord. The Bible says, what fellowship hath light with darkness? What communion hath Christ with Belial?
+
+And it warns about seeking to develop an unequal yoke with an unbeliever. And so the king is severely rebuked for this endeavor on his part. And it would seem that he was initiating it, going on up to visit and all, and initiating this kind of a friendliness. Friendship and an aid program. When Ahab said, would you like to go out with me to battle?
+
+He said, my troops are as yours. You know, I'm like you. We're brothers and all. And so it was a thing where he was helping the ungodly. He was seeking to create an alliance with an ungodly king. Nevertheless, the prophet said, there are good things found in thee, in that you have created these spiritual reforms by the destroying, by the destroying of the ungodly.
+
+Of the idols, of the false gods that have been set up there in the land. So, at the word of the prophet, Jehoshaphat again just sort of sought to reestablish a spiritual work within the kingdom of Judah. He took some priests and he went around to the various cities of Judah. There was sort of a evangelistic campaign.
+
+And, he would go into a city. They would gather together the people. And the priest would again lay out the law of the Lord to the people. They would establish judges that they might judge righteous judgment within the cities of Judah. And, it was actually further spiritual reforms as they traveled through the land, seeking to turn the hearts of the people unto the Lord.
+
+So, they went around and the charge that they put to the people was, thus shall ye do in the fear of the Lord faithfully with a perfect heart. And, what call so ever shall come to you of your brothers. I mean, this is what they said to the judges when they set up the judges. And, I wish that every judge would have to face this kind of a admonition at the beginning of his judgeship or even should have it on the wall of his chamber every day.
+
+This is what God requires of a judge. That he judges in the cases in the fear of the Lord faithfully and with a complete heart. Now, in chapter 20, it records how that at this time, three nations had gathered together to fight against Judah. The nation of Moab and Ammon and those of Mount Seir, which would have been the Edomites.
+
+And, word came to Jehoshaphat that Judah was being invaded by this confederacy of nations. That they had already come across the Dead Sea and they were in the area of En-Gedi. And, they were approaching actually by the area of En-Gedi, which is the valley known also as the Valley of Passengers and became known.
+
+As the Valley of Jehoshaphat. Because, this is where God wrought the victory for Jehoshaphat and thus it became known as the Valley of Jehoshaphat or Jehoshaphat. Now, it is interesting because God ultimately destroyed this invading army. And, we'll get to that in a moment. But, Ezekiel tells us that there is going to be another confederacy of nations.
+
+But, Ezekiel tells us that there is going to be another confederacy of nations. But, Ezekiel tells us that there is going to be another confederacy of nations. That is going to attack Israel in the last days. A confederacy of nations led by Russia. And, there will be with her, of course, many of the Eastern Europe nations, plus the Balkan nations, plus Iran, plus Saudi Arabia.
+
+And, they also will be destroyed in this Valley of Passengers. And, they also will be destroyed in this Valley of Passengers. And, they also will be destroyed in this Valley of Passengers. And, they also will be destroyed in this Valley of Passengers. So, history will be repeated. And, interestingly enough, Much of the destruction will be in the same way this destruction took place.
+
+Much of the destruction will be in the same way this destruction took place. For, in the destruction described in Ezekiel, One aspect of it, God said, every man's sword will be against his brother. So, God speaks of an internal revolution that is going to take place among the communist states and nations among the communist states and nations in which they seek to come against Israel, plus the judgment that God pours out.
+
+But when in time people are passing through this valley of the passengers of Jehoshaphat and they see the carcasses, the bones, they'll set a flag by it and so forth. So this same valley in which God once destroyed the enemies of Israel, God is going to work again and destroy invading armies that are coming against Israel in that same area.
+
+I find that very fascinating indeed. So Jehoshaphat, when he heard that these three nations were gathered together to invade the land, called the men of Judah together and he proclaimed a fast throughout all of Judah and he set himself to seek the Lord. And the people gathered together. And Jehoshaphat stood in the congregation of Judah there at the house of the Lord in the new court and he said, O Lord God of our fathers, you are the God of heaven or the God of the universe and the ruler over the earth.
+
+Now, in a sense, God is the ruler over the earth because whatever happens on the earth happens because God has allowed it. And yet, in a narrower sense, Jesus recognized that Satan was ruling the earth at the present time. Now, Satan only rules because God allows him to rule. So in an overall sense, yes, God rules, but God in his rule has allotted man free moral agency, self-determination, the power, capacity, of choice.
+
+God has allowed man to choose who he desires to rule over him. And the majority of men have chosen that Satan should rule over their lives. And God has not violated man's choice. He's allowed him to make the choice and then respects the choice that man has made. So in the world today, Satan is ruling.
+
+When Jesus came, Satan decided, Satan took him up to a high mountain, showed him all the kingdoms of the world, and said, All of these will I give to you and the glory of them if you will bow down and worship me, for they are mine and I can give them to whomever I will. Now, Satan is boasting to Jesus that, Hey, it's all mine.
+
+I have the power to give it to whoever I want. And Jesus did not dispute that claim. In fact, why did Jesus come? In order that he might redeem the world because it was under Satan's power. Now, Jesus called Satan the prince of this world. He said to his disciples, the night he was betrayed, just before going to the garden where he was arrested by the soldiers, he said, I have told you that I go to my father.
+
+Now, if you love me, you would rejoice for my father is greater than I. But now, he said, the prince of this world cometh, but he hath nothing in me. So, Satan is referred to by Christ as the prince of the world. Paul calls him the god of this age, referring to the sinners. He said, the god of this age has blinded their eyes that they cannot see the truth.
+
+So, in a narrow sense, Satan is ruling over the earth at the present time. This is his domain. This is his kingdom. When the evidence, the Antichrist comes on the scene, the book of Revelation chapter 13 tells us that Satan, the dragon, is going to give to him his authority and his throne. Now, Satan said to Jesus, it's mine, I can give it to whoever I will, and he's going to give it to the Antichrist who will rule over the world.
+
+Now, it is interesting how many of the world leaders have been involved in the occult. And, of course, one of the most notable of recent times was Hitler, who actually was controlled by what the men who were called the white masters, those men who were steeped in the art of white magic. Many of them, after Hitler's fall, fled to Peru, where they still exercised quite a bit of power and control.
+
+Over the lives of many people. But Hitler was taking directions and following the advice of these men of the occult. And, of course, it doesn't give me comfort to hear our presidents say, or at least Jean Dixon say, that so many of the presidents call her for advice. Now, Satan, one day, is going to turn over the full authority and power.
+
+Of this earth, that is his, to the Antichrist. But, of course, he knows that his time is short, the scripture said. He knows that his reign is about over. And so, he's really doing his best to mess things up before he has to exit the scene. Now, Jesus said to his disciples, when you pray, you should say, our Father, which art in heaven, hallowed be thy name, thy kingdom come, thy will be done, in earth as it is in heaven.
+
+We pray that his kingdom will come. We pray that his will be done here in the earth because right now his kingdom has not come. His will is not being done. You do not see the world that God wants or God intends. He doesn't want a world that is filled with suffering and war and hardships and inflation and pollution and all of this.
+
+The Bible tells us that when he comes to establish his kingdom, that righteousness will cover. The earth as the waters do cover the sea and that there won't be the physical maladies that men experience today and that Satan during this period of time will be bound and be cast into the abuso while Jesus reigns upon the earth for a thousand year period.
+
+And so, when Jehoshaphat said that you rule over the earth, that is only in an overall sense as God rules over the universe, but in the universe there is one planet that is in rebellion against the rule of God and as the result of that rebellion against God's rule, that planet is hurting, it's suffering.
+
+And it's headed, it's on a head-on collision course with great calamity and disasters and they're coming. There's no escaping it. But after this time, after this time of great disaster, then Jesus will come and he will reign and God's kingdom will then extend and cover over the whole earth. So, Jehoshaphat in his prayer acknowledged the greatness of God and then he acknowledged that God was the one that brought us into this land.
+
+He was the one that delivered this land to our fathers. For he had promised the land unto Abraham and to Abraham's seed. And God drove out the inhabitants that were there. And then he said, they built this, and they were standing, remember, in the temple. And he said, they built this sanctuary for thy name that when calamity came, they might come to this place and call upon you.
+
+And here is where he makes reference to the prayer of Solomon in verse nine, when Solomon dedicated the temple, and they dwelt in this land. They have built thee this sanctuary for thy name saying, when they build it, they said, if when evil comes upon us as the sword or judgment or pestilence or famine, and we stand before this house and in thy presence, for thy name is in this house.
+
+And we cry unto thee in our affliction, then thou wilt hear and help. And so he acknowledges first the greatness of God, the purposes of God in bringing them into the land, and the promise of God that when they were in trouble, when the sword was threatening or judgment, and they come into your house and they pray, then that you would answer.
+
+Now he lays out the cause. Lord, here they come, the Moabites, the Ammonites, and the Edomites, and there are too many for us to handle. We don't have the power. We don't have the might against them. And so he is asking God for help. In verse 12, O our God, wilt thou not judge them? For we have no might against this great company that comes against us.
+
+And neither do we know what to do, but our eyes are upon you. God, we're facing an enemy that is stronger than we are. We don't know what to do, but we're looking to you for help. Now how many times I have been in a similar state. When the situation that I faced was overwhelming, I didn't know, I didn't know the answer.
+
+I didn't know what to do. And so I just turned to the Lord. Lord, my eyes are upon you. I'm looking to you for wisdom, for guidance, for help. And so the Lord answered Jehoshaphat by this fellow Jehaziel, who was the son of Zechariah. And the Spirit of the Lord came upon him in the midst of the congregation, and he said, Hearken ye, all Judah, and the inhabitants of Jerusalem, and thou King Jehoshaphat, thus saith the Lord unto you, be not afraid or dismayed by reason of this great multitude, for the battle is not yours, but God's.
+
+Tomorrow go ye down against them. Behold, they come up by the cliff of Ziz, and you'll find them at the end of the brook before the wilderness of Jeruel. You will not need to fight in this battle. Set yourselves, stand still, and see the salvation of the Lord with you, O Judah and Jerusalem. Fear not, nor be dismayed.
+
+Tomorrow go out against them, for the Lord will be with you. And so the glorious promise of God, commanding them to not be afraid or dismayed, for the battle is not yours, but God's. It's so wonderful, when God takes up our part, when God stands up for our defense. David said, The Lord is my refuge and my strength.
+
+I will not fear, though the mountains be removed and cast into the midst of the sea. How wonderful when God is my strength. God is my defense, my defender. Don't be afraid. Don't be dismayed. This battle isn't yours. It's God's. Now you go down tomorrow by the cliff of Ziz, the cliff of Ziz, where you'll get the overview of the valley of Jurel there.
+
+And you just stand still and see the salvation of the Lord. And then again, don't be afraid. Don't be dismayed, for the Lord is with you. The consciousness of the presence of God is always one of the greatest factors to dispel fear from our lives. I can be extremely frightened until I realize God's God is with me.
+
+Then all of a sudden, I'm not afraid anymore. It's only when I lose the consciousness of God's presence with me. It's only when I get things out of perspective and I forget that my life belongs to Him, that this is His church, and I try to start carrying the burdens myself and losing that perspective of God's presence with me, sometimes I become terrified.
+
+As David said, why art thou cast down, O my soul? Why art thou disquieted within me? And sometimes my soul gets cast down or very disquieted. It's because I have forgotten that it all belongs to God, that I am His, that He is with me. Hopest thou in the Lord, David said, He shall yet deliver thee. Hey, do you forget about God?
+
+Do you forget that God's on the throne? And how many times, we forget that God is on the throne. And we try to take up the battle ourselves. And we try to do things ourselves until we get into the place of despair. God says, don't be afraid. Don't be dismayed. I will be with you. And so as the result of this, of course, Jehoshaphat bowed his face to the ground before the Lord.
+
+And all of the army, the men of Israel, just fell on, fell on their faces before the Lord and just worshipped the Lord. Oh, what good word this is. Here we thought we were going to get wiped out. Here we thought there was no hope for our survival. And now the word of the Lord comes and says, hey, we're not going to even have to fight against this huge army that's invading the land.
+
+All we have to do is be a spectator. We're going to go down and watch God fight the battle. Ringside seats as God destroys the enemy. And the priesthood, as the people were lying there before the Lord, worshipping God, the priest stood and they praised God with loud voices.
+
+The next morning, they left Jerusalem, heading down through the valley of Hinnom and around towards the right, going south towards Bethlehem, through the shepherd's field, the valleys below the city of Bethlehem, again taking another southern turn or going south towards Bethlehem. Over near the area of the Herodian and then on past that area, turning now again east, coming down to the little village of Tekoa, the home of Amos the prophet.
+
+And there just beyond Tekoa, the cliffs of Ziz that overlooked the wilderness area towards En Gedi, this valley where the invading army was coming up from En Gedi into the land. And yet, what a strange army it must have looked like because out in front of the army were the choir, the singers. And they were singing praises unto God.
+
+And the people were responding to their praises. They would sing, O praise the Lord, for he is good. And the army would answer, for his mercy endureth forever. And so they were going towards the battle to watch the victory. The victory of God, singing praises of victory already unto the Lord, for his mercy endureth forever.
+
+It is possible for you to have the victory before you have the victory. Paul talks about being more than conquerors through him who loves us. What does that mean, more than a conqueror? I know what it means to be a conqueror, but what does it mean to be more than a conqueror? It means that you have the victory before you have the victory.
+
+You have the victory before you have the victory. You have the victory even before the battle starts. You have that glorious victory of God in your heart and spirit. You're rejoicing and praising God before you ever see the accomplished work of God. And so here they were. Their hearts were lifted. They were rejoicing.
+
+They were praising the Lord because they had the word of God and the promise of God that he was going to destroy their enemies. Now even before they got to the battle ground to see what was going on, to see what God was doing, they were already rejoicing and shouting and praising God for the victory that had been promised unto them.
+
+Oh, what a glorious scene that must have been to see that valley full of men, probably some 200,000 strong, being led by a choir as they were going down to see the work of God in delivering their enemies into their hands. The victory through prayer, through praise. And it is at this point we read, and as they praised the Lord, the Lord put ambushments against their enemies.
+
+As they were praising the Lord, the Lord began his work in destroying their enemies. There can be glorious victory in your life through praise. As you learn to praise the Lord and just spend your time in praise of him for his promise, we need to take the promises of God and put them over against our situations and then just praise the Lord for his promises that he has given to us a victory in our situations.
+
+Now, I don't think that you should praise the Lord that you have so many debts that you can't pay them all, but I think you should praise the Lord in that he has promised, I will supply all of your needs according to my riches in glory by Christ Jesus our Lord. So I can't praise the Lord for these duns that I'm getting from the bill collectors, but I can praise the Lord that he has promised to supply my needs.
+
+So my praise are in the promises of God. And as I am praising God for his promises, God begins a work, his work of mystery many times. I don't know how he's going to do it. I don't know what he's going to do, but he begins his work. And he begins to accomplish his work. And it's so glorious as they praise the Lord.
+
+The Lord put the ambushments against their enemies. Now, we do spend an awful lot of time complaining to the Lord about our situations, about our problems, about the circumstances of our life. If you would take that time that you spend complaining to the Lord, and just start praising the Lord for his promise to watch over you and to deliver you and to keep you and to bless you, then you'd find that God would, while you are praising, bring you victory in your heart.
+
+Suddenly, the whole perspective changes as I'm praising the Lord, as I'm thanking him for his word and for his promises. My whole attitude changes. It goes from one of fear and dismay and anxiety, to one of confidence and victory. All right, Lord, go at them. And I just had that beautiful confidence that God is working.
+
+So as they praised the Lord, the Lord put ambushments against their enemies so that when they got to the cliff of Ziz and they began to look down in the valley, they saw the valley was full of all these dead bodies. Four. The men of Mount Seir, the Edomites, began to fight against those from Moab. And it turned into a real brawl in the Donnybrook.
+
+And the men of Ammon joined in. And so they were all fighting with each other and killing each other. So that by the time the children of Israel got there, they were all wiped out. Oh, God is so good. I was talking with John, who is one of, one of our young men here in the church who is now a recruit in the Costa Mesa Police Department.
+
+And he was sharing how the other night, the officer who was training him, he and the officer pulled a car over down here on Fairview and Fair Drive in the Exxon station. And he said as they started pulling the guys out of the car, he said there were six big bikers. And he said that as they started pulling out the booze, and as they started to get to some of the other things, the guys jumped them.
+
+And he said just the two of us officers against these six big bikers. And he said, I heard one of them say, grab his gun and we will shoot, you know, the brains out of these guys. And so he said he felt this guy tugging at his gun. And he said, now the guns have a front throw on them. You have to pull them out front ways to get them out of the hole.
+
+And this guy was trying to behind him and trying to pull it up straight. Couldn't get it out. And so he said he just took and elbowed the guy. And he said, but boy, he said they were swinging, rolling on the ground and everything else. And of course, they put out the officer in distress call. And he said, but pretty soon, he said, he and his partner were standing up and these guys were all brawling with each other.
+
+He said they were swinging away and hitting each other. And he said they just stood there back to back watching these guys wiping out each other. You know, and after it was over, he said to his training officer, did you get hit? And he said, no. And he said, neither did I. In all of that swinging, they never hit him.
+
+And he said, he told his training officer, praise the Lord, you know, the Lord just put them to confusion, got them fighting with each other, you know, and we were able to escape. But Jesus Christ is the same yesterday, today and forever. And he can put the enemies to confusion. He can deliver his child out of distress, out of danger.
+
+He can keep you unscathed in the midst of a battle. The Lord is the same. They went on down. They found that these guys had worn all their jewelry into battle, all the precious gems and everything else these guys were wearing. And so they began to strip the dead bodies of all of the valuables, the jewels, the ornaments and everything else.
+
+And there was so much that they couldn't even carry it off. It took them three days to strip all the bodies. And they came back with great rejoicing unto the Lord. On the fourth day, they assembled themselves in the valley of Baraka, which is in means the valley of blessing for there. They bless the Lord.
+
+And so they named the valley, the valley of Baraka unto this day. And then they returned every man of Judah and Jerusalem. And Jehoshaphat was in front of them. And they came back to Jerusalem with joy, for the Lord had made them to rejoice over their enemies. And as they came to Jerusalem with the psalteries and the harps and the trumpets to the house of the Lord, the fear of God was in all of the kingdoms of those countries when they heard how the Lord had fought against the enemies of Israel.
+
+So the realm of Jehoshaphat was quiet for his God gave him rest round about. And Jehoshaphat reigned over Judah. He was 35 years old when he began to reign. He reigned for 25 years. He walked in the way of Asa, his father, departed not from it, doing that which was right in the sight of the Lord. How be it?
+
+The high places were not taken away for as yet the people had not prepared their hearts unto God, the God of their fathers. Now the rest of the acts of Jehoshaphat, Jehoshaphat first and last, they're written in the book of Jehu, who was a prophet who is mentioned in the book of the kings of Israel. Now Jehoshaphat then once again joined affinity with Ahaziah, the king of Israel.
+
+Now Ahaziah was the son of Ahab. He also was an extremely wicked person. But Jehoshaphat had some strange drawing towards the kings, the kings of Israel. And so they made an agreement to build ships in order that they might go to Tarshish to get gold and all. But the ships broke up in a storm and they never made it to Tarshish.
+
+Actually, Eliezer, a prophet, prophesied against Jehoshaphat saying, because you have joined yourself with Ahaziah, the Lord hath broken thy works. And the ships were broken in a storm. They were not able to go to Tarshish. Now, Jehoshaphat died and was buried with his fathers, the city of David. And Jehoram, his son, reigned in his stead.
+
+And he had brothers who were also sons of Jehoshaphat. And it named several of the brothers. And Jehoshaphat had given to his sons great gifts of silver, gold, and precious things. And he gave them cities. But the kingdom he gave to Jehoram, because he was his oldest, his firstborn. Now, when Jehoram was risen up to the kingdom of his father, verse 4, he strengthened himself and killed all of his brothers with a sword and also many of the princes of Israel.
+
+And Jehoram was 32 years old when he began to reign. He reigned eight years in Jerusalem. He walked in the way of the kings of Israel, that is the northern kings who were wicked, like as did the house of Israel, like as did the house of Ahab. For he had the daughter of Ahab to wife, and he wrought that which was evil in the eyes of the Lord.
+
+Now, here is where Jehoshaphat's seeking to become friends and joining affinity with the kings of Israel got him into trouble. For no doubt on some of his ventures up to the kingdom of Israel in visiting Ahab, he took his oldest son with him, Jehoram, who saw the daughter of Ahab and fell in love with her.
+
+And, of course, because he was seeking to make an affinity with the kings, they arranged the marriage, and his oldest son married the daughter of wicked Ahab, who was also the daughter of Jezebel. And thus, she had the same kind of an influence upon her husband, Jehoram, the son of Jehoshaphat, as did Jezebel upon Ahab, a very wicked influence in the kingdom.
+
+Now, this is where the dad may say, well, I can go and it won't bother me. You know, I know how to handle myself and I won't be touched by the things. But yet, his son going with him

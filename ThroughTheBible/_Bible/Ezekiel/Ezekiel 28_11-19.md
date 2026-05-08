@@ -1,0 +1,29 @@
+---
+title: "Bible: Ezekiel 28:11-19"
+tags: [bible, ezekiel, prophecy, ch28]
+book: Ezekiel
+chapter: 28
+verses: "11-19"
+category: Prophecy
+---
+
+
+# Ezekiel 28:11-19
+
+
+## Passage
+
+> **11** Moreover the word of the LORD came unto me, saying, **12** Son of man, take up a lamentation upon the king of Tyrus, and say unto him, Thus saith the Lord GOD; Thou sealest up the sum, full of wisdom, and perfect in beauty. **13** Thou hast been in Eden the garden of God; every precious stone {was} thy covering, the sardius, topaz, and the diamond, the beryl, the onyx, and the jasper, the sapphire, the emerald, and the carbuncle, and gold: the workmanship of thy tabrets and of thy pipes was prepared in thee in the day that thou wast created. {sardius: or, ruby} {beryl: or, chrysolite} {emerald: or, chrysoprase} **14** Thou {art} the anointed cherub that covereth; and I have set thee {so}: thou wast upon the holy mountain of God; thou hast walked up and down in the midst of the stones of fire. **15** Thou {wast} perfect in thy ways from the day that thou wast created, till iniquity was found in thee. **16** By the multitude of thy merchandise they have filled the midst of thee with violence, and thou hast sinned: therefore I will cast thee as profane out of the mountain of God: and I will destroy thee, O covering cherub, from the midst of the stones of fire. **17** Thine heart was lifted up because of thy beauty, thou hast corrupted thy wisdom by reason of thy brightness: I will cast thee to the ground, I will lay thee before kings, that they may behold thee. **18** Thou hast defiled thy sanctuaries by the multitude of thine iniquities, by the iniquity of thy traffick; therefore will I bring forth a fire from the midst of thee, it shall devour thee, and I will bring thee to ashes upon the earth in the sight of all them that behold thee. **19** All they that know thee among the people shall be astonished at thee: thou shalt be a terror, and never {shalt} thou {be} any more. {a terror: Heb. terrors}
+>
+> — Ezekiel 28:11-19 (KJV)
+## Referenced By
+
+- [[Ezekiel 26-30 Notes.md]]
+
+## Cross-References
+
+- [[Ezekiel 26_1-14.md]]
+- [[Ezekiel 26_1-21.md]]
+- [[Ezekiel 27_1-36.md]]
+- [[Ezekiel 29_1-21.md]]
+- [[Ezekiel 30_1-26.md]]

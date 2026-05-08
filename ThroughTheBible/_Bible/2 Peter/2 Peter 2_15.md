@@ -1,0 +1,32 @@
+---
+title: "Bible: 2 Peter 2:15"
+tags: [bible, 2peter, epistle, ch2]
+book: 2 Peter
+chapter: 2
+verses: "15"
+category: Epistle
+---
+
+
+# 2 Peter 2:15
+
+
+## Passage
+
+> **15** Which have forsaken the right way, and are gone astray, following the way of Balaam {the son} of Bosor, who loved the wages of unrighteousness;
+>
+> — 2 Peter 2:15 (KJV)
+## Referenced By
+
+- [[Numbers 11-20.md]]
+- [[Numbers 21-28.md]]
+
+## Cross-References
+
+- [[2 Peter 1_16-21]]
+- [[2 Peter 1_20-21]]
+- [[2 Peter 3_3–7]]
+- [[2 Peter 3_5–7]]
+- [[2 Peter 3_8]]
+- [[2 Peter 3_8-9]]
+- [[2 Peter 3_9]]

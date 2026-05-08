@@ -1,0 +1,32 @@
+---
+title: "Bible: Ezekiel 15:1-8"
+tags: [bible, ezekiel, prophecy, ch15]
+book: Ezekiel
+chapter: 15
+verses: "1-8"
+category: Prophecy
+---
+
+
+# Ezekiel 15:1-8
+
+
+## Passage
+
+> **1** And the word of the LORD came unto me, saying, **2** Son of man, What is the vine tree more than any tree, {or than} a branch which is among the trees of the forest? **3** Shall wood be taken thereof to do any work? or will {men} take a pin of it to hang any vessel thereon? **4** Behold, it is cast into the fire for fuel; the fire devoureth both the ends of it, and the midst of it is burned. Is it meet for {any} work? {Is it...: Heb. Will it prosper?} **5** Behold, when it was whole, it was meet for no work: how much less shall it be meet yet for {any} work, when the fire hath devoured it, and it is burned? {meet: Heb. made fit} **6** Therefore thus saith the Lord GOD; As the vine tree among the trees of the forest, which I have given to the fire for fuel, so will I give the inhabitants of Jerusalem. **7** And I will set my face against them; they shall go out from {one} fire, and {another} fire shall devour them; and ye shall know that I {am} the LORD, when I set my face against them. **8** And I will make the land desolate, because they have committed a trespass, saith the Lord GOD. {committed...: Heb. trespassed a trespass}
+>
+> — Ezekiel 15:1-8 (KJV)
+## Referenced By
+
+- [[Ezekiel 11-15 Notes.md]]
+
+## Cross-References
+
+- [[Ezekiel 13_1-23.md]]
+- [[Ezekiel 14.md]]
+- [[Ezekiel 14_1-11.md]]
+- [[Ezekiel 14_1-6.md]]
+- [[Ezekiel 14_12-23.md]]
+- [[_Bible/Ezekiel/Ezekiel 16.md]]
+- [[Ezekiel 16_1-14.md]]
+- [[Ezekiel 16_15-43.md]]

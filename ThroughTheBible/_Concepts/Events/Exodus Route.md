@@ -1,0 +1,18 @@
+---
+title: "Exodus Route"
+tags: [concept, events]
+aliases: [exodus route]
+---
+
+# Exodus Route
+
+**Exodus Route** is a concept referenced in the Through the Bible with Pastor Chuck Smith series (C2000 and T2000).
+
+## Backlinks
+
+The following notes reference [[Exodus Route]]:
+
+- [[Exodus.md]]
+
+---
+*This concept note was auto-generated to resolve wikilink references in the vault.*

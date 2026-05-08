@@ -1,0 +1,34 @@
+---
+title: "Bible: 1 Kings 1"
+tags: [bible, 1kings, history, ch1]
+book: 1 Kings
+chapter: 1
+category: History
+---
+
+
+# 1 Kings 1
+
+
+## Passage
+
+> Now king David was old {and} stricken in years; and they covered him with clothes, but he gat no heat. {stricken...: Heb. entered into days} ... So king Solomon sent, and they brought him down from the altar. And he came and bowed himself to king Solomon: and Solomon said unto him, Go to thine house.
+>
+> — 1 Kings 1 (KJV)
+## Referenced By
+
+- [[C2000/Notes/1_Kings/1 Kings 1-4.md|1 Kings 1-4]]
+- [[C2000/Notes/2_Samuel/2 Samuel 1-7.md|2 Samuel 1-7]]
+- [[C2000/Notes/2_Samuel/2 Samuel 17-24.md|2 Samuel 17-24]]
+- [[C2000/Notes/2_Samuel/2 Samuel 8-16.md|2 Samuel 8-16]]
+
+## Cross-References
+
+- [[1 Kings 2]]
+- [[1 Kings 2_1-46]]
+- [[1 Kings 2_1-9]]
+- [[1 Kings 2_10]]
+- [[1 Kings 2_10-46]]
+- [[1 Kings 1]]
+- [[1 Kings 3_1-15]]
+- [[1 Kings 3_11-13]]

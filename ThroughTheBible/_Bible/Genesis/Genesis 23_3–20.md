@@ -1,0 +1,32 @@
+---
+title: "Bible: Genesis 23:3–20"
+tags: [bible, genesis, law, ch23]
+book: Genesis
+chapter: 23
+verses: "3–20"
+category: Law
+---
+
+
+# Genesis 23:3–20
+
+
+## Passage
+
+> **3** And Abraham stood up from before his dead, and spake unto the sons of Heth, saying, **4** I {am} a stranger and a sojourner with you: give me a possession of a buryingplace with you, that I may bury my dead out of my sight. **5** And the children of Heth answered Abraham, saying unto him, **6** Hear us, my lord: thou {art} a mighty prince among us: in the choice of our sepulchres bury thy dead; none of us shall withhold from thee his sepulchre, but that thou mayest bury thy dead. {a mighty...: Heb. a prince of God} **7** And Abraham stood up, and bowed himself to the people of the land, {even} to the children of Heth. **8** And he communed with them, saying, If it be your mind that I should bury my dead out of my sight; hear me, and intreat for me to Ephron the son of Zohar, **9** That he may give me the cave of Machpelah, which he hath, which {is} in the end of his field; for as much money as it is worth he shall give it me for a possession of a buryingplace amongst you. {as much...: Heb. full money} **10** And Ephron dwelt among the children of Heth: and Ephron the Hittite answered Abraham in the audience of the children of Heth, {even} of all that went in at the gate of his city, saying, {audience: Heb. ears} **11** Nay, my lord, hear me: the field give I thee, and the cave that {is} therein, I give it thee; in the presence of the sons of my people give I it thee: bury thy dead. **12** And Abraham bowed down himself before the people of the land. **13** And he spake unto Ephron in the audience of the people of the land, saying, But if thou {wilt give it}, I pray thee, hear me: I will give thee money for the field; take {it} of me, and I will bury my dead there. **14** And Ephron answered Abraham, saying unto him, **15** My lord, hearken unto me: the land {is worth} four hundred shekels of silver; what {is} that betwixt me and thee? bury therefore thy dead. **16** And Abraham hearkened unto Ephron; and Abraham weighed to Ephron the silver, which he had named in the audience of the sons of Heth, four hundred shekels of silver, current {money} with the merchant. **17** And the field of Ephron, which {was} in Machpelah, which {was} before Mamre, the field, and the cave which {was} therein, and all the trees that {were} in the field, that {were} in all the borders round about, were made sure **18** Unto Abraham for a possession in the presence of the children of Heth, before all that went in at the gate of his city. **19** And after this, Abraham buried Sarah his wife in the cave of the field of Machpelah before Mamre: the same {is} Hebron in the land of Canaan. **20** And the field, and the cave that {is} therein, were made sure unto Abraham for a possession of a buryingplace by the sons of Heth.
+>
+> — Genesis 23:3–20 (KJV)
+## Referenced By
+
+- [[Genesis 21-23.md]]
+
+## Cross-References
+
+- [[Genesis 21_1-21]]
+- [[Genesis 21_22-34]]
+- [[Genesis 21_31]]
+- [[Genesis 2_2]]
+- [[Genesis 22_1-18]]
+- [[Genesis]]
+- [[Genesis 22_1-24]]
+- [[Genesis 22_10-12]]

@@ -1,0 +1,18 @@
+---
+title: "James the Just"
+tags: [concept, people, people, biblical-figure]
+aliases: [james the just]
+---
+
+# James the Just
+
+**James the Just** is a concept referenced in the Through the Bible with Pastor Chuck Smith series (C2000 and T2000).
+
+## Backlinks
+
+The following notes reference [[James the Just]]:
+
+- [[T2000/The Search of God, Job 23|The Search of God, Job 23]]
+
+---
+*This concept note was auto-generated to resolve wikilink references in the vault.*

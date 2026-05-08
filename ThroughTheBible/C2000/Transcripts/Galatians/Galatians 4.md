@@ -1,0 +1,114 @@
+---
+title: C2000 Galatians 4
+source: C2000 Series
+book: Galatians
+chapters:
+  - 4
+speaker: Pastor Chuck Smith
+series: C2000
+tags:
+  - c2000
+  - pauline-epistles
+  - new-testament
+  - galatians
+  - transcript
+type: transcript
+---
+
+Now I say that an heir, as long as he is a child, doesn't differ anything from a servant, though he be Lord of all. But he is under the tutors and the governors until the time appointed of the father. So Paul now gives us an illustration of a, here's a little child. He's born in the Rockefeller family. One day he's going to be heir to the Rockefeller fortunes. But as long as he is in kindergarten, he can't go out and sign checks for a million dollars, though one day it'll all be his.
+
+Right now, he's a child. He's under the tutors. He's under the trainers, the governors who are teaching him those things that he needs to know to manage the fortune when once it becomes his. Now, he's the heir of all things, but he can't really spend it yet until he comes. He comes to that appointed time of maturity and all when he has been prepared by the tutors and the teachers to then handle properly this whole vast fortune.
+
+You're an heir of God. Now, as long as we are in a state of development and maturing process, though I am the heir of all of God, I am waiting for the time appointed of the forefathers. Father, when I enter into that inheritance, in the meantime, I'm being trained in how to handle it. Relationships. So we, when we were children, were in bondage under the elements of the world. But when the fullness of time was come, then God sent forth his son made of a woman made under the law to redeem them that were under the law.
+
+That we might. Receive the adoption of sons and because your sons got it sent forth the spirit of his son into your hearts, crying, Abba, Father, wherefore, you're no more a servant, but a son, and if a son, then an heir, an heir of God through Christ. So the law was more or less a tutor, a governor. But now in the fullness of time, Jesus came born of Mary. He came under the Jewish law, grew up in a Jewish home, followed the Jewish law, only did follow it perfectly in order that he might redeem those who were under the law.
+
+Now, this idea of being under the law is being under the sentence of the law. You see, when you violate the law, then you come under the law. That is, you have the law. The law has made a demand upon you. That demand must be fulfilled for you to be free. If you go speeding down Fairview Avenue, 80 miles an hour, and the policeman pulls you over, writes you up, you have to go over to Harbor Municipal Court, and they will say, your fine is $150.
+
+You say, well, I would like to pay $150. And they'll give you your day in court. And the judge will say, you're charged here with going 80 miles an hour in a 50-mile-an-hour zone. How do you plead, guilty or not guilty? Did you go 80 miles? Yes, but $100. But judge, do you want to try? Trial by court or jury? Well, I'll take a trial by court. Well, you're guilty, $100. They're not really interested in the extenuating circumstances.
+
+They're only interested in guilt or not guilt. And the sentence is imposed. Now you say, but judge, I don't have $100. All right, five days in jail. Now, that's the demand of the law upon you. You're under the law. So the bailiff comes in, he puts the handcuffs on you, and takes you off to jail for the next five days. Five days. You're under the law. And until you have sat there for five days, the law has the hold over you.
+
+Once you have sat there for five days, then you're no longer under the law. Its demands have been fulfilled, and you are now set free. Now, being under the law of Moses is a little more serious. Because the penalty there is death. And so I'm under the sentence of death by the law of Moses. I'm under this law. Under the sentence of death. And I cannot be set free until the law has been fulfilled. And so men up until the time of Christ were under the law.
+
+Under the sentence of the law. Under the curse of the law. But in the fullness of time, God sent his son, born of a woman, under the law. That we who were under the law might receive this glorious adoption of sons. Now, I am a son. I am a son of God, but not in the same manner as Jesus is a son of God. Beware of any teaching that would put you on an equal par with Jesus Christ.
+
+There is some very dangerous teaching by some of the popular Pentecostal evangelists. In which in their books, they finally come to the conclusion. Of course, they have books on the authority of the believer and things of this nature. And in some of their books, they'll finally write, So that I am Christ. Thus, I can make demands upon God. Because I am Christ. That is extremely pernicious heresy. I am not a son of God as Jesus is a son of God.
+
+He was the only begotten of the Father, full of grace and truth. God sent his only begotten son. There's only one begotten son of God. That is Jesus Christ. I am Christ. I am a son of God. God has adopted me into his family. Now, I'll take that. I love that. It's great to be a son of God, even if by adoption. I was born by the Spirit, born again into the family of God. But yet it was by adoption that God chose me.
+
+Jesus is the only begotten son of God. So that he came to redeem those. So that we're under the law that we might receive the adoption of sons. And because ye are sons, God has sent forth the spirit of his son into your hearts, crying Abba. Which is the Hebrew word for daddy. That beautiful, close, intimate relationship that God wants you to experience with him. To look to him as your daddy. As your father. Jesus said, and when you pray, say, our father.
+
+For which art in heaven, hallowed be thy name. That beautiful, close relationship with God. Wherefore, you are no more a servant, but a son. Now, as a child, under the law, you didn't differ at all from the servants. You couldn't really have the inheritance. The inheritance comes through Jesus Christ. It does not come through the law. The law was the tutor. Unto the time of Christ. Once Christ has come, the promise fulfilled. Now, by faith, we are redeemed from the law.
+
+That we might be adopted as sons of God. And as the sons of God, now become the heirs of the promises of God. And of the covenant that God made with Abraham. If a son, then an heir of God through Christ. How is it then? When you... But now, after that ye have known God, or rather are known of God, ye turn again to the weak and vaguely elements whereunto you desire again to be in bondage. Now, there are people who really know not God, and yet they do all kinds of ritualistic things.
+
+They'll put on grotesque masks. And they'll paint their bodies. And they'll go through a dance. And they will wave swords. And they will go through all kinds of gyrations, physical gyrations. And they will assure you that by doing these things, they are going to bring rain. For they have just, you know, gone through the rain dance thing. And now the gods are going to send rain as the result of these incantations and machinations that they have gone through.
+
+Wearing their various colored robes or loincloths or whatever the case may be because you find in different cultures all different kinds of get-ups and dresses for these men who are doing these things as service unto God to bring the favor. Now, in the church, we have men who put on robes of different colors and high hats and wave scepters over the people, shake water on them and declare that by these things they can bring God's blessings upon your life.
+
+That's exactly what Paul is talking about. When you were still heathen, when you were still pagans, you did service unto them which by nature are not really gods. You were doing your pagan exercises, your pagan rituals. But now after you have known God, or rather are known of God, how is it that you're turning back to this ritualistic relationship to the weak and the vaguely elements wherein to they desire again to be in bondage? Most of the practices of holy days and so forth that we have in the church come from...
+
+From heathen, pagan practices. So you observe days and months and times and years. You have your Lent season. You have your All Saints Day. Going back to the weak and the vaguely elements of the past rather than going forward into this new relationship with God through faith. I imagine a lot of radios have just been turned off, but that's the truth. Paul said, But I'm afraid of you, or I am fearful, lest I have bestowed upon you labor in vain.
+
+Brethren, I beg you, be as I am, for I am as ye are. You've not injured me at all. Now, don't be offended with me, Paul is saying. I'm not offended with you. Be as I am. I am not angry. I'm not offended. I love you. But I've got to tell you, sometimes the truth is painful. So don't be upset with me. Be as I am, for I'm really not upset with you. You've not really injured me.
+
+So be as I am. Don't be injured by me or feel injury towards me. For Paul said, You know how that through the infirmity of the flesh or the weakness of the flesh, I preached the gospel unto you at the first. And, my temptation or trial was in my flesh. And you did not despise me nor reject me, but you received me as an angel of God. You received me even as Christ Jesus. When I came to you, I was weak.
+
+I was sick. I had a real problem physically. But yet, you openly accepted and received me like an angel of God or even as Jesus Christ Himself. Now, where is then the blessedness which He spake of? When they first received the gospel through Paul, oh, how happy they were. How joyful as their lives were transformed by the power of the Spirit. Now these men have come in and brought in these perverse teachings. Brought them into a ritualistic relationship.
+
+Have gone back to some of the weak and the beggarly elements. Tried to put them under a regimen and a routine and a ritual relationship. A relationship with God rather than a living relationship with God. Paul said, I bear you record that if it had been possible, you would have plucked out your own eyes and given them to me. So this is no doubt a hint towards what Paul's weakness in his flesh was. An eye problem. Now, in those days, they had some oriental diseases.
+
+Affecting the eyes. Causing a constant kind of a pink eye condition. The running. Sort of a conjunctivitis of which they had no cure. And so, it would affect the eyesight. It was repulsive to look at. And some believe that this is what Paul had. And yet, Paul says, you know, you receive me. You love me so much that some of you would have been glad to have given your eyes to me. But am I therefore become your enemy because I tell you the truth?
+
+You know, some people make it hard to really be honest and truthful with them because of the way they react. Some people rebel against the truth. Some people don't want to hear the truth. I'm comfortable. Don't bother me with facts. My mind is made up. You know, I don't want the truth. Tell me how well I am. Don't tell me the truth. I don't want to hear the truth. And so, there are those that are bound within a certain system in relating to God.
+
+This is the way my fathers did it. Don't bother me with the truth. I'm happy here. I'm satisfied here. I don't have to do much. Just sit and watch. And people are disturbed by the truth. And Paul said, Have I become your enemy because I've told you the truth? Now, they zealously affect you. And many of these persons are extremely zealous in their presentations. But it is not good. Yes, they would exclude you that you might affect them.
+
+But it is good to be zealously affected always in a good thing and not only when I'm present with you. So, these guys are there. They zealously affect you. But actually, they would exclude you from God that you might affect them, that you might support them and all. So, Paul said, My little children, a term of great endearment, of whom I travail in birth again until Christ be formed in you. So, Paul's response is travailing prayer. Oh, my little children, for whom I travail in birth until Christ be formed in you.
+
+I desire to be present with you now and to change my voice for I really stand in doubt of you. Now, writing is many times difficult because you don't hear the tonal inflections. And many times it's the way something was said that causes you to interpret what is being said. And this is the unfortunate part of the Scripture because I think that many times we misinterpret the Scriptures because we read into it a tonal inflection which may not necessarily be there.
+
+For instance, when God came to Adam in the Garden of Eden after Adam had disobeyed and God said, Adam, where art thou? What was the tone of voice? Now, I'm certain that many times we think it was the tone of voice of an arresting officer ready to haul you off to jail. Adam, where art thou? Yeah, you know. But I really believe that that was, if you heard the tone of voice, the sob of a heartbroken father whose child had just messed up.
+
+Adam, what have you done? And I don't hear judgment and thunder ringing in the voice of God. I hear heartbreak in the voice of God. So many times I think we imagine God thundering on us. In heavy judgment. When in reality, His heart is broken over our failure and His desire is to restore us. My little children for whom I travail until Christ be formed in you. Oh, how I wish I were there to change my tone of voice so you could hear my tone of voice.
+
+Because I really stand now in doubt of you. Tell me, you that desire to be under the law, do you really understand what you're doing? You that want a legal relationship to God, do you really understand what this entails? Do you really know what this means? For it is written that Abraham had two sons. One was by the bondmaid. The other was by the free woman. But he who was of the bondwoman was born after the flesh.
+
+But he of the free woman was by the priest. He was born after the promise of God. Which things are an allegory? For these are the two covenants that God has made. One from Mount Sinai, which gendereth to bondage, which is Hagar, that is the flesh. For this Hagar is Mount Sinai in Arabia and answers to Jerusalem, which now is, that is all of the temple and the law and all of the ritual in the relationship to God through the law and through the temple, the Jerusalem which now is and is in bondage to her children.
+
+But Jerusalem, the spiritual Jerusalem which is from above, is free, which is the mother of us all. For it is written, Rejoice thou barren that bearest not, break forth and cry thou that travailest not, for the desolate has many more children than she which hath a husband. Now this is quoting from Isaiah 54 and it is a scripture that relates to Israel when God restores upon Israel the national favor and blessing again. And as they then look back, they will see that God has brought forth many more children from the Gentile nations than from Israel.
+
+The weeping, the chagrin that will come to them when they realize that they have rejected God's Messiah. And they see how that from among the Gentiles God has brought forth these millions to believe and so the barren has brought forth more children than she which had a husband. The nation of Israel. And so those that are of the promise, those that are of the spirit, Paul uses the allegory of the line of the flesh, Hagar. That was a fleshly expediency by Sarah and Abraham in attempting to help God out.
+
+And when Ishmael was about 13 years old, Abraham was sitting in the tent and God said, Abraham, I'm going to give you a son. And Abraham said, Lord, let Ishmael live before you forever. In other words, hey, don't put me on anymore. God, I'm satisfied. I've got Ishmael, you know. I've given up with Sarah. Let Ishmael live. And God said, No, through Sarah shall thy seed be called. The son of promise. One was the son of the flesh.
+
+The other was the son of promise. The two covenants. The law relates to the flesh. But the covenant of promise, that is of Jesus Christ, relates to the spirit. And thus, in our relating to God, we must either relate to God through the law or through the spirit. Through the works of the law or through the spirit. But by the works of the law, it is evident no one can be justified. So that leaves us really, a true relationship with God can only be wrought by the spirit and your faith in Jesus Christ.
+
+Now we, brethren, as Isaac was, are the children of promise. I've been adopted as the son of God, redeemed by Jesus Christ, and I have become the children of promise. But as then, he that was born after the fullness even so it is now. And so Ishmael was vexing Isaac in time to come. Making fun of him. Mocking this little kid. And so Sarah was upset at the way Ishmael was treating Isaac. And Sarah said, Get rid of that bondwoman.
+
+I can't take it anymore. And Abraham was hurt over this because he loved Ishmael. Ishmael, he was his son. But the Lord spoke to Abraham and said, Listen to your wife, Sarah. And so Abraham put out the bondwoman and her son. Nevertheless what says the scripture, Cast out the bondwoman and her son for the son of the bondwoman shall not be heir with the son of the free woman. So then, brethren, we are not children of the bondwoman but of the free.
+
+The bondwoman, referring to the law, to Mount Sinai, could not bring man into the blessings of God. All it could bring man was the curse. It is interesting. You remember when the children of Israel came into the Promised Land under Joshua. And they came to the area of Shechem. Representatives of six tribes were to be on Mount Gerizim. And representatives of six tribes were to be upon Mount Ebal. Now, those that were on Mount Ebal, the Mount of Blessing, didn't say anything.
+
+Because the law could not bring a blessing. But those that were upon Mount Gerizim, twelve times said, Cursed be the man. And they would call this down and it would echo down into the valley of Shechem where all of the people were. Because the law could only bring a curse. It could not bring redemption. It could not bring a man. Into the blessings of God. It is the Spirit through Jesus Christ that brings you into the blessing of God.
+
+We are not the children of the bondwomen. We don't relate to God through the law. We do not relate to God through our works or through our righteousness. But we relate to God through the promises of God given to us which we by faith believe and accept and enter in and receive. Then the blessings of God. Something the law could not do is bring me into the blessings of God. But my faith in Jesus Christ causes me to abound in the blessings of God.
+
+This teaching of Paul to Galatians is important because we all seem to hold on to a concept of reward for good, punishment for bad. And that's life. That's the way we grew up. That's the way we were trained. The enforcement of good behavior by rewards. The punishment of bad behavior. That's all I've known all my life. But that is not how I relate to God. And it's important that when I seek to relate to God that I dismiss this concept by which I was trained.
+
+And that I relate to God through faith, believing the promises of God that He loves me and wants to bless me. And believing God to bless me even though I know that I have failed. I know I don't deserve it. I know I'm not worthy. I know my works don't measure up to it. But to receive by grace the blessings of God through the promises. I'm a child of the free woman. A child of promise. And since discovering that I have never ceased to receive the blessings of God in an ever increasing measure.
+
+This past week I met a young man who was here at Calvary Chapel when we first started through some tragic experiences turned away from God was bitter against God and for years would have nothing to do with Jesus Christ or with God. He was bitter. I had a funeral this past week for his grandmother. He was there. He came up and put his arm around me. Hugged me. Told me how glad he was to see me. And how he had recommitted his life completely to Jesus Christ.
+
+He said, you know what it was? He said, God just kept blessing me. He said, every way I turned I was blessed of God. He just kept blessing me so much I couldn't handle it. I finally just said, God I give up. I can't handle it. Your blessings are so marvelous. He said, I kept waiting for the axe to fall. I kept waiting for God to really you know, wipe me out. But he said he never did.
+
+He just kept blessing me and I couldn't handle the goodness. Of God. So I just dedicated my life to him again. I said, the scripture says, don't you realize it's the goodness of God that brings a man to repentance. Oh, God is good. We're children of the promise. And God wants to bless you. Why don't you let him? Just believe him to bless you. Trust him to bless you. Father, we thank you for this relationship that we have with you through faith in Jesus Christ.
+
+We thank you for this new covenant, the covenant of promise based upon your work that you have promised to do. And because, Lord, it's based upon your work, it is sure. For your work is sure. Lord, bless your people tonight. May they go from here, Lord, blessed in every direction as you pour forth upon them your love, your blessings through Jesus Christ. Amen. You know, I wouldn't dare to say these things unless the scripture did. Because it's not really, you know, according to my conceptual thinking.
+
+This isn't the way I respond. I respond, you know, in the old ways to people. You're nice to me, I'll be nice to you. Get nasty with me, I'll get nasty with you. It's hard to handle God and the grace of God, His goodness to me, though I have failed, though I don't deserve it. But because the scripture teaches it, I dare not depart. I dare not declare anything else. I must declare to you what God has declared to be true of your relationship with Him and of His desired relationship with you.
+
+He doesn't want a legal relationship. He wants a loving relationship. He wants you to love Him and to know how much He loves you. And He wants you to come to Him on that basis of love, His love for you. And when you learn to come to that loving relationship with God, your life will be blessed, so blessed, because you're not now limiting the blessings to your works of righteousness. You're not keeping back the blessings because of your lack of works of righteousness, but you're being blessed on the basis of God's promise and God's work for you in Jesus Christ, which never ceases.
+
+Father, let this be the turning point of our lives tonight. Bless your truth upon our hearts in Jesus' name. God bless you.

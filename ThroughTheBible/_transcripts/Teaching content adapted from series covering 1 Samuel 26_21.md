@@ -1,0 +1,323 @@
+---
+title: "I've Played the Fool — 1 Samuel 26:21"
+source: "C2000 Series (adapted)"
+video_id: "ShIKX0QBBuA"
+video_number: 42
+passage: "1 Samuel 26:21"
+tags: [t2000-series, kingdom-era, pastor-chuck-smith]
+speaker: "Pastor Chuck Smith"
+series: "T2000 Topical Series"
+type: transcript
+processed: true
+transcript_source: "C2000 series (verse-by-verse teaching)"
+---
+
+# Teaching content adapted from C2000 series covering 1 Samuel 26:21
+# Note: The T2000 topical video transcript was unavailable;
+# this content is from Pastor Chuck Smith's C2000 verse-by-verse teaching on 1 Samuel 26:21
+
+Let's turn in our Bibles to 1 Samuel 26 and let's begin our study of these final five chapters, six chapters. The wilderness of Ziph actually lies between Hebron and the area of the Dead Sea, a very vast, barren area. And the Zipfites came to Saul in Gibeah and they said, David is hiding himself there in the wilderness of Ziph.
+
+So Saul went down with 3,000 of his men seeking David and Saul pitched there his tents or his camp. And David was staying in the wilderness and he saw how Saul came to him and David sent out his spies. Right. Right. and learned that Saul indeed had come. And so David arose and came to the place where Saul had pitched.
+
+Now, that wilderness area is such that there are just a lot of places where you can hide and a lot of places where you can observe the movements of others without being seen yourself. And David saw the place where Saul was lying, and Abner, the captain of his host, nearby. And Saul lay in the trench, and the people were pitched around about him.
+
+And David answered and said to Ahimelech, the Hittite, and to Abishai, the son of Zariah, Who wants to go with me to Saul to the camp? And Abishai said, I will go down with you. Now again, as I have said so often, I admire David. I admire the courage of this guy. I admire the daring. Here is Saul out to get him.
+
+And so David, you know, is looking over the camp. He sees where Saul is. He sees where David is lying down and all. And he is so daring, he is going to sneak down into the camp of Saul at night. Rather than just running the other direction, making as much distance as he can between him and Saul, he has just got that adventuresome spirit and all.
+
+He says, who wants to go with me down to the camp there tonight? And Abishai says, I will go with you. So David and Abishai came down into the camp, and they were all sound asleep. And Saul was lying there, and his spear was stuck in the ground beside him. And Abishai said to David, All right, David, look at that.
+
+Lying there on the ground. Let me take the spear and run him through. I won't even hit him the second time. God's delivered your enemies into your hands. And David said, Who can stretch forth his hand against the Lord's anointed and be guiltless? Now, I have to have great respect for David's respect for the anointed of God, even though the anointing of God had for all practical purposes been lifted from Saul.
+
+Still, David had such a high regard and respect for the fact that God's anointing had been upon his life that David refused to touch him. Because God had said in the law, Touch not my hand. Be mine anointed and do my prophets no harm. Now, God places a protection, really, around his anointed servants.
+
+And that's just one of the fringe benefits of the ministry. There's a lot of hardships in the ministry. It isn't all glamour and excitement and, you know, drama and thrilling experiences. There's a lot of heartaches. There's a lot of mistakes in the ministry. There's a lot of hard experiences in the ministry.
+
+Dealing with people isn't always the easiest thing in the world. There are a lot of situations of which there seems to be absolutely no way out. And you just don't know what to do, what to say. You're at a loss. And you're not infallible. You can make a lot of mistakes. The Lord knows I've made my share of them.
+
+But one of the first things I do is, I make a lot of mistakes. One of the fringe benefits is that He stands with you. As I stand here to minister the Word of God, I don't stand alone. The Lord stands with me. And it's wonderful to know that protective power of God upon your life and surrounding your life.
+
+Now, there are a lot of people who feel that they know much better how to run the church than I do. Now, let me confess, I don't know how to run the church. And I don't pretend to know how to run the church. I do my best to get my orders from the Lord. But there are some people who feel that they are like the Lord.
+
+That they can give me the orders. And they seek to conform me into their image. Now, my wife tried to do that for years. Obviously, we're not on the radio tonight. I don't think. And finally, one day I said, Honey, you're not God. I'm not to be conformed into your image of what you think a husband should be.
+
+I want to be conformed into His image. And I'm not so sure that you and He are lined up in what I ought to be. So my wife finally gave up trying to conform me into her image. But there are people who write and try to tell me how the services ought to be conducted, what we ought to do, what we ought to be doing.
+
+And it's sort of sad because I see that when a person once gets their mind bent towards criticism, that it grows and grows and grows. And it becomes like a cancer. It soon overwhelms them and they become so critical of everything. And, you know, we have people that come and say, well, why don't you do this in your services?
+
+Why don't you do this? And they have all these ideas of what we ought to be doing. And in reality, nearby there are churches that are doing those very things. Why don't they go to those churches where they are doing those things if that's what they want the church to do? You see, I must follow the Lord and the leading of the Lord.
+
+And if you want a lot of shouting and a lot of demonstrations, there are churches that have these kind of things. I suggest you find one. I got a letter from... I got a letter from a lady a while back and said, I've been looking for years for a church where the Word of God was being taught. And we came to your church and we were just so thrilled because the Word was being taught.
+
+But then the usher told us that we couldn't bring our little two-year-old baby into the services with us. And if my baby isn't welcome, then I don't feel welcome. And she began to lay a trip on me because her baby wasn't allowed into the services with us. And she began to lay a trip on me because her baby wasn't allowed into the church, you know, and so disappointed.
+
+Well, I wrote her back and told her that we have some 180 babies to 220 two years old and under that are here on an average Sunday morning. And that if all of those babies were in the service, no one would be able to hear the teaching of the Word of God. So I told her that I was praying that the Lord would help her to find a church where the Word of God is being taught where her baby would be welcome.
+
+But I also just hoped that if her baby was welcome that she'd be able to hear the service and the teaching of the Word in that particular church that she might find. Now, there is a reason why we don't have children in the services. It's so that we can minister to people on an adult level with a high level of attention so that there aren't the distractions of children going in and out, children going through songbooks, babies crying and so forth.
+
+And that's the way the Lord has led us to do. And if you want to go to a church where you can sit and have your baby on your lap crying through the whole service, there are churches that will let you get by with that and you're welcome. Go find one. And it's interesting to me too, you know, in the New Testament, Jesus said, you know, how that the people were getting around the law that said you're to honor your father and mother, you're not to curse them, and if you curse your parents, you're to die.
+
+And so, they had developed, it's like the fellow in Israel told me, well, he said, I'll talk to the rabbi. He said, they can always figure a way around it, you know. So on the Sabbath day, you're not to spend any money, but you can use credit cards now on the Sabbath day because that's not money. They always figure a way around.
+
+So, they said, if you tell your mother and father before you curse them, say, this is just for your benefit. This is for your good. I want you to know that you're just a lousy creep, you know, and then you can tell them anything you want. As long as you say this is a gift for you, this is for your benefit and your good, then say whatever you want.
+
+And so, circumventing the law completely. Someone writes me notes and signs agape. Well, because they sign agape, they think they can say all kinds of mean, critical things in their notes. Because after all, they sign it agape. No agape there at all. That's hypocritical. Touching the anointed of God should never be considered something that, you know, should be light.
+
+David had a high respect. He wouldn't touch Saul. And he said, look, God is going to take care of him. And that's the proper attitude. If he is God's servant, God is going to take, take care of him. Paul said, who are you to judge another man's servant before his own master either stands or falls? And God is able to make him to stand.
+
+Now, if I were serving you, then I should be taking orders from you. But I'm serving the Lord. And my responsibility is to the Lord. And someday, I'm going to stand before Him and give an account of myself and of my ministry to Him. Therefore, I've got to listen to Him because I'm going to be accountable and answerable to Him one day.
+
+So David said, God's going to take care of him some way or other. God is going to smite him. He's going to fall in battle. God will take care of him. I don't want my hand to be against the anointed of God. I don't want to be guilty of that. The Lord forbid, he said, that I should stretch forth my hand against the Lord's anointed.
+
+But I pray thee, take now, the spear that is at his bolster and the cruise of water, and let's get out of here. So David took the spear and the cruise of water from Saul's bolster, and they got away. No man saw it or knew it, neither did they wake up, for they were all asleep because a deep sleep from the Lord had fallen upon them.
+
+Then David went over to the other side and stood on the top of a hill that is far off, a great space being between them. And David cried to the people and to Abner, the son of Ner, saying, Answerest thou not, Abner? Then Abner answered and said, Who art thou that criest to the king? Now, David got a great way off and called.
+
+There's an interesting thing about that country, and that is that there is a tremendous acoustics of some kind that you can hear for miles. I was... I was pointing it out to the people when we were up on the Herodian. There were children that were at least three-quarters of a mile away that were playing out there.
+
+And I said, listen to those kids. And you could hear them. You could hear them as they were playing. You could hear them calling to each other and all. And when they had gone up to the top of the Herodian as we were going up the hill, I saw some caves about halfway up the hill. And I was curious what might be in those caves.
+
+And so, I, rather than walking up the road to the top of the Herodian, walked around the side of the Herodian to explore these caves, which I found to be big cisterns there in the side of the Herodian and some interesting ruins of the walls. But the people were up on the top and I could hear them just talking to each other in their conversations, though I was almost halfway down the mountain.
+
+And so, I started... I started talking to them and we could converse back and forth over an area of 400 feet in normal voice without yelling or lifting our voices. We could converse at a distance of over 400 feet very clearly. There's something about the atmosphere or whatever, but sound really is conducted very easily over there.
+
+And you can actually hear for miles. And so, David went over into the other mountain just a great way off. And he cried back and they could hear him. You can actually sound transfers so well in the atmosphere or whatever that it's really amazing. People wonder how in the world could Jesus ever talk to 5,000 people.
+
+But the way the acoustics are there, there isn't any really problem at all to address large multitudes of people without public addresses. It's really something that is quite unique and interesting. I've always found it extremely interesting. So, David went over to this mountain and he called back, Abner!
+
+Abner said, Who is it that's crying unto the king? And David cried to the people and to Abner saying, Don't you answer, Abner? And David said to Abner, Are you not a valiant man? And who is likened to you in Israel? And why have you not kept thy lord the king? For there came one man, one of the people, in to destroy the king thy lord.
+
+It's not good what you have done. As the Lord liveth, you ought to be put to death because you have not kept your master, the Lord's anointed. And now look where the king's spear is and the cruise of water that was there at his bolster. And so, David is sort of chiding Abner, the chief general of Saul, saying, Hey, your job is to guard the king and you aren't doing a good job.
+
+You ought to be put to death. Someone came in to destroy the king and you were just sound asleep. Look where the king's spear is and the cruise of water. And Saul, of course, waking out of his sleep said, Is this thy voice, my son David? And David said, It's my voice, my lord, O king. And he said, Why does my lord pursue after his servant?
+
+What have I done? Or what evil is in my hand? Now, David, I think one of the phrases of David all the way through was, What have I done? Always saying, What have I done? He seemed to always be getting into trouble, you know, and always really for not very much, but what have I done? And so, when he went down to the camp where his brothers were fighting against the Philistines and the Goliath came out and David began to say, Hey, why are you guys hiding?
+
+And why doesn't one of you fight him? His brothers started getting on his case and he said, Hey, what have I done? I only asked a few questions. And here with Saul, What have I done that you would pursue me like this? Now, therefore, I pray thee, let my lord the king hear the words of his servant. If the lord has stirred you up against me, then let the lord receive an offering.
+
+Let's offer a sacrifice and let's get it over with. But if it is the children, if it is the children of men that have stirred you up against me, then let them be cursed. For they have driven me out from abiding in the inheritance of the lord. Now, therefore, let not my blood fall to the earth before the face of the lord.
+
+For the king of Israel has come out to seek a flee and as a partridge you've chased me over these mountains. Then said Saul, I have sinned. Return my son David, for I will no more do thee harm because of you. Because my soul was precious in thine eyes. This day, behold, I have played the fool and erred exceedingly.
+
+Now, here's a confession of Saul. And Saul, if David's phrase was, What have I done? Saul's phrase was, I have sinned. But he never repented. He only declared a fact. And this is sort of tragic. And so many people do that today. They say, Oh, I have sinned. But they don't change. It's more than just the confession of guilt that is necessary.
+
+It's the turning from the sin which is important. Except I'll repent, Jesus said, you're going to perish. And repent means to turn. So it isn't just saying, Oh, I have sinned. It's turning from your sin which is so important to the Lord. And here is Saul again and many times on many occasions. Whenever he was faced by Samuel the prophet, he said, Oh, I have sinned.
+
+But there wasn't any sign of repentance. I have sinned. I've played the fool. I have erred exceedingly. This is Saul's confession. Of course, it's a very tragic confession. It's the truth. He did play the fool. All through his life, he played the fool. He was a man who was endowed by God with many natural talents and abilities.
+
+He was a man who was given every opportunity by God. But yet a man who blew his opportunities of really being a servant of God. He is a man who failed to do the work of God though he had all that he needed to be a marvelous king over Israel. He became exalted and lifted up with pride and played the fool and erred exceedingly.
+
+And so his autobiography, I have sinned. I've played the fool. I've erred exceedingly. So David answered and said, Behold the king's spear. Let one of your young men come over and get it. And the Lord render to every man his righteousness and his faithfulness. For the Lord delivered you into my hand today, but I would not stretch forth my hand against the Lord's anointed.
+
+And behold, as thy life was much set by this day in my eyes, so let my life be much set by in your eyes or in the eyes of the Lord and let him deliver me out of all tribulation. Then Saul said to David, Blessed be thou, my son David. Thou shalt both do great things and thou shalt still prevail. Now Saul underneath knew that someday David was going to take the throne.
+
+He was trying to protect the throne and to pass it on to Israel. To pass it on to his own children. But yet in his heart, he knew that God had anointed David and that David was God's anointed king. Then Saul said to David, Blessed be thou, my son David. Thou shalt both do great things and still prevail.
+
+So David went on his way and Saul returned to his place. Now, David made a negative confession in chapter 27. And if what these people are preaching today, David would have been killed by Saul if what they say is true. If you are what you say, if words have the creative force and words become a creative force and you can say it into existence and so forth, then you've got God's divine fiat power and you've become as God.
+
+But David said in his heart, I shall now perish one day by the hand of Saul. What a negative confession. One day Saul's going to get me. Now, if what they teach, is true, then it should follow that Saul one day killed David, but that didn't happen. Don't let people lay a trip on you because you may have a negative personality and say negative things.
+
+Oh, that's going to happen to you. You shouldn't be saying that. That's just what's going to take place. That's not true. There are a lot of negative people that have positive things happen to them and a lot of positive people that have negative things happen to them. The Bible says the sun shines on the just and the unjust alike.
+
+And the rain falls on the just and the unjust. And I don't care who you are, you're going to have problems in your life and you're going to have good times in your life. And you can say negative things and not have to just go around cringing and fearing, oh, I said it, now it's going to happen. David said in his heart, I shall now perish one day by the hand of Saul.
+
+There's nothing better for me than I should speedily escape to the land of the Philistines and Saul, and Saul will despair of seeking me anymore in the coast of Israel and I'll escape out of his hand. So David arose and passed over with the 600 men that were with him to Achish, the king of Gath. Now, Gath is one of the five major Philistine cities.
+
+It lies about 10 miles inland from Ashdod and Ashkelon. Ashdod and Ashkelon being on the coast and Ashkelon being on the coast. And Gath made sort of a triangle about 10 miles inland from these two Philistine cities. Down in the southern part, 50 kilometers from Beersheba, this city of Gath. The ruins are still there today.
+
+We stopped by just the other day and looked at the ruins of the city of Gath. And in my mind, I tried to picture David, as he first came to Achish and let the spit run down his beard and slobbered all over and acted like a madman, scrabbling on the walls. And I could see the walls of the ancient city of Gath and I could in my mind picture old David there doing his little scene in front of Achish.
+
+Now this time he comes to Achish again and he is seeking actually political asylum almost because Saul is after him. And so Achish received David and David said, look, I don't need to dwell in this city, but just give me a city around here. I don't need to dwell in the royal city. So he gave him Ziklag.
+
+And so David then and his men began to invade areas around them. Now, though I admire David, I admire David for a lot of things, yet I don't admire David for other things. And this I cannot really find any real excuse for David's actions. He would go out and he would totally wipe out a city. And he'd kill everybody so that there'd be no one to come back and tell people what was happening.
+
+And he was making excursions against these cities and when he got there, then Achish would see him. He said, well, where you been? You know, where you been building a road today? And he said, oh, over against Judah and all. And so actually, he was wiping out a lot of these little Philistine villages and Canaanite villages and making out to King Achish that he was fighting against Judah.
+
+So he thought, oh boy, they're going to utterly hate David over in Judah now. But he would kill everybody so that there would be no one to... to tell what he was doing. That is not at all right. It isn't admirable. I don't have any excuses for David in these actions. The only thing I think that it does point out is that God can use men that aren't perfect.
+
+And David was far from perfect. I think that many times we have some kind of a concept that God only uses perfect people that isn't so. Many times we disqualify ourselves from serving the Lord, being used of God because we're so conscious of our own imperfections. But God used David. And that's always an encouragement to me that God could use a guy like David, then God can use a guy like me because I'm far from perfect also.
+
+And He can also use a person like you because I don't think you're so perfect either. So it came to pass, it came to pass in those days that the Philistines gathered their armies together for warfare to fight with Israel. And Achish said with David, Know assuredly that you shall go out to battle with me, you and your men.
+
+So David said to Achish, And you shall know what your servant can do. Achish said to David, Therefore, I will make you the keeper of my head forever. In other words, sort of putting David over as his personal bodyguard and all. Now Samuel was dead, and Israel had lamented for him and buried him in Ramah, even in his own city.
+
+And Saul had put away those that had familiar spirits and wizards out of the land. And the Philistines gathered themselves together and came and pitched in Shunem. And Saul gathered all Israel together and they pitched in Gilboa. Now Gilboa is clear up in the area just south of the Sea of Galilee. So the Philistines, the Philistines had really moved a long way against the Israelites.
+
+Gilboa is clear over. Actually, the one side of Gilboa goes down to the Jordan River. So the Philistines had really taken a lot of the territory at this point. Saul was being boxed into just a very small area. And there he was encamped in Gilboa. And when Saul saw the whole area, the hosts of the Philistines, he was afraid and his heart greatly trembled.
+
+And Saul inquired of the Lord, but there was no answer either by dreams nor by the Urim nor by the prophets. Now God speaks to us in many different ways. God can speak to us by dreams. Now, I don't believe that I personally personally have ever, ever had a dream that had any spiritual significance to it.
+
+But now that I'm getting to the age, as the Scripture said, your old men shall dream dreams, maybe I'm going to someday start getting dreams with spiritual significance. Let me say this. Though to my own belief, I have never had a dream with any spiritual significance, it doesn't stop me from realizing that I may someday have a dream that has spiritual significance and I'm open to it.
+
+Just because I've never had it, I don't say, well, God doesn't speak to men through dreams anymore. I believe that God can still speak to people through dreams and I'm open to dreaming. If God wants to speak to me in a dream, I'm open to it. I'd be thrilled and delighted to have God speak to me in a dream.
+
+God also speaks to people through visions. Now, I have had visions in which God did speak to me. God speaks to people through the prophets. And I have had God's Word come to me through anointed brothers and sisters in Christ that I recognize as God's Word to me. In the Old Testament, God also spoke through the Urim and the Thummim, which were... a part of the priest's garments and all... they were a little sort of a pouch that he wore.
+
+And they say that there was a black stone and a white stone and that the black stone was a no answer and the white stone was yes. Whether or not that is actually so, I don't know. But somehow, God spoke through the Urim and the Thummim. Now, the words actually mean lights and perfections. And it could be that rather than stones, which have become sort of the tradition, the traditional kind of a thing, it could be that this thing would light up that the priest wore when God would say yes, that this thing would light up.
+
+But God was not answering Saul's prayers by any of these methods by which they were accustomed to God speaking to them. Now, I am interested in God speaking to me. However, God spoke to some of them through angels. But God has spoken and God speaks to me. And God continues to speak to me constantly through His Word.
+
+And this, I think, is the place where you learn to start to know and to hear the voice of God getting into the Word. And it's so important that you're in the Word and God has that opportunity to speak to you through His Word. So, God wasn't answering the prayers of Saul. So, Saul said to his servants, Find me a woman that has a familiar, a familiar spirit that I may go to her and inquire of her.
+
+And the servants said to him, Behold, there's a woman that has a familiar spirit at Endor. So, Saul disguised himself and put on other raiment and he went with two men. And they came to the woman at night and he said, I pray thee, divine unto me by the familiar spirit and bring me him up whom I will name unto thee.
+
+And the woman said to him, Behold, you know what Saul has done, how he has cut off all of those that have familiar spirits and the wizards out of the land. Why are you laying a snare for my life to cause me to die? And Saul swore to her by Jehovah saying, As Jehovah lives, there shall no punishment happen to thee for this thing.
+
+Now, there of course is that weird admixture in Saul. Here he is talking to a witch and swearing by the Lord that no evil will come to her if she goes ahead and practices her witchcraft and brings forth the spirit that he is desiring. As Jehovah lives, swearing by the Lord, there are a lot of people that are really mixed up in their whole spiritual life.
+
+Just a total confusion in spiritual things. Using spiritual phraseology. You know, it's like planning to rob a bank and then having a prayer meeting. Now, Lord, help us to pull off this job successfully, you know. You have come to... It's just really confusion. Here he is engaged in this woman who is possessed by a demon.
+
+Actually, that's what it means. A familiar spirit. A demon-possessed woman. And going to her for counsel and advice. Bringing back a spirit. And then the woman said, Who shall I bring up to thee? And he said, Bring me up Samuel. And when the woman saw Samuel, she screamed. And the woman spake to Saul saying, Why have you deceived me?
+
+For you are Saul. And the king said unto her, Don't be afraid. What did you see? And the woman said, I saw the gods ascending out of the earth. And he said unto her, What form was he? And she said, He was like an old man covered up and he's covering with a mantle. And Saul perceived that it was Samuel and he stooped with his face to the ground and bowed himself.
+
+And Samuel said to Saul, Why have you disquieted me? To bring me up. And Saul answered, I am sore distressed for the Philistines make war against me and God is departed from me. And he answers me no more, neither by the prophets nor by dreams. Therefore, I have called thee that you may make known to me what I shall do.
+
+Then said Samuel, Why do you ask me seeing the Lord has departed from you and has become your enemy? And the Lord hath done to him as he spoke, as he spoke, as he spoke, as he spoke, as he spoke, as he spoke by me. For the Lord has taken the kingdom out of your hand and given it to your neighbor, even to David.
+
+And because you obeyed not the voice of the Lord, nor executed his fierce wrath upon Amalek, therefore hath the Lord done this thing unto thee this day. Moreover, the Lord will also deliver Israel with thee into the hand of the Philistines and tomorrow you and your sons will be with me. Ooh, that would be a heavy thing to lay upon somebody, wouldn't it?
+
+And he will deliver the host of the Philistines and the host of Israel into the hand of the Philistines. Now, did Samuel really come back? Did this witch actually bring back a spirit from the dead? I would like to say I see no reason at all for not believing the story just as it is written. I always feel that the obvious interpretation is the correct interpretation and if you try to force another interpretation into the text, that actually the very fact that you're trying to force something means that it doesn't fit.
+
+I do not understand this whole issue, but I am convinced that even as a Christian, I am convinced that even as a Christian, I am convinced that even as a Christian, that even as a Christian, that even as a Christian, that even as a Christian, that even as a Christian, that even as a Christian, that even as a Christian, that even as a Christian, that even as a Christian, so it happened and that somehow Samuel did come back and that it was indeed Samuel that talked with Saul.
+
+The spirit of Samuel was brought back and that it was a genuine experience of dealing with spirits that have departed and are in the other world. It would seem that the witch herself was shocked because of what happened. She screamed when she saw Samuel. It could be that she had been using as these spirit mediums often do just a particular demon spirit that gives them information.
+
+Now, there is a reality to the spirit world. There is a reality in spiritism, but you, you are warned by the Bible to stay away from that kind of stuff. That it isn't something that you should be dabbling with. But it is possible to contact spirit entities. But as a general rule, what a person is contacting is a demon that can disguise himself as different persons.
+
+Now, these demons, having lived in the various ages, and being in the spirit realm able to observe many things, are naturally able to tell you facts about your life and about the past that nobody else ever knew. And usually people are drawn into these kind of things because the person is able to tell them names and to tell them experiences that they had as a child or that they had sometime during their life that is sort of locked up in their own heart.
+
+They've never told anybody else. And now this spirit has told me and revealed these things to me. And you get all of excited and you think, oh, I'm actually contacting the spirit of my mother because that was something that only my mother and I knew. Not so. Demons knew it too. And thus, they are able to rehearse for you conversations that you had, experiences that you had, things that took place.
+
+Lying spirits disguising themselves as one of your dead loved ones. And there is a reality to the demon spirits and all. And this woman having a familiar spirit or a demon spirit was able to consult the demon spirit. Now, there are people who dabble into this realm of spiritism and some of them get spirit guides and they direct their writing or they direct their arts and people get into all kinds of things using spiritism.
+
+Spirit guides. But they are demon spirits who disguise themselves as, say, the spirit of a writer of the past or something of this nature. There is a real world of spirits. There is a real world of demon spirits as there is the real world of the angelic spirits that are still obedient to God. But it is the world that we are warned not to dabble with, not to get involved with.
+
+And the fact that, you know, they can hypnotize a person and put them in age regression, take them back before their birth and then supposedly go back to previous lives and get the names of Annie Murphy and the streets she lived on and all this kind of stuff doesn't prove reincarnation at all. It only proves demons have been around for a long time and they can use all kinds of guises in order to deceive people and draw people into their deception.
+
+Now, I personally believe that this woman was shocked and surprised when Samuel came back. She expected to have a little conversation with her demon guide and her demon spirit and from him to get the information that Saul was seeking. But to her amazement, this spirit actually came out of the earth and she shrieked when she saw it.
+
+And all of a sudden, she realized the truth that Saul and Samuel began to talk. And God allowed this to happen, a special dispensation of God, but surely it isn't a criteria for us to seek to contact the spirits of those that have departed to be with the Lord. Now, Samuel came up out of the earth. Prior to the death and the resurrection of Jesus Christ, everyone who died, went into Sheol, which is in the lower parts of the earth or in the heart of the earth.
+
+Prior to the death and resurrection of Jesus Christ, Sheol was divided into two separate compartments as is taught by Jesus in Luke's Gospel chapter 16. There was one compartment where Abraham was encouraging and comforting those who died in faith. There was another part where the sinners were being in a state of torment.
+
+And Jesus speaks about it very clearly and plainly in Luke's Gospel. After the ascension of Jesus Christ or at the ascension of Jesus Christ, those who were being comforted by Abraham and in that part of Sheol were resurrected with Christ and went on in to the heavenly scene. For Paul tells us in Ephesians, this is the fourth chapter, he who has ascended is the same one who first of all descended into the lower parts of the earth and when he ascended, he led the captives from their captivity.
+
+Fulfilling the prophecy of Isaiah 61 that declared he would lose the bonds and set at liberty those that were captive. So he set at liberty those that were being held captive by death. And in Matthew 27, we read, and the graves of many of the saints were opened and they were seen walking through the streets of Jerusalem after his resurrection from the dead.
+
+So, Samuel coming up out of the earth spoke to Saul telling him that God had departed from him. What a horrible thing. But, you see, what could you expect? He is a man who had departed first from God and became, because you disobeyed the voice of God, God has departed from you. Because you have rejected God, God has rejected you.
+
+And tomorrow, you and your sons are going to be here with me. Saul fell on the ground. He was sore afraid because of the words of Samuel. There was no strength left in him for he hadn't eaten all that day or that evening. And the woman came to Saul and she saw that he was afraid. And troubled, she said, Behold, your handmaid has obeyed your voice.
+
+I've put my life in my hand. I've hearkened unto your words which you spoke to me. Now I pray thee, hearken thou also unto the voice of thine handmaid and let me set a morsel of bread before you that you may eat and have strength, that you may go your way. But he refused and he said, I will not eat. But his servants together with the woman pressed upon him until he ate.
+
+And so the woman fixed. And so the man set up a feast for him. Now the Philistines gathered together all their armies to Aphek. And the Israelites pitched by the fountain which is in Jezreel, which is the area of Armageddon. Actually, it's the whole plains of Megiddo. Jezreel, Ezra'lon. They all come together.
+
+The lords of the Philistines passed on by the hundreds and by the thousands. But David and his men passed in the rearward with Achish. Then said the princes of the Philistines, What are these Hebrews doing here? And Achish said unto the princes of the Philistines, Is this not David the servant of Saul the king of Israel, which has been with me for these days or rather years?
+
+And I have found no fault in him since the day that he came unto me to this day. And the princes of the Philistines were angry with him. And the princes of the Philistines said to him, Hey, make this fellow get out of here that he may go again to his place which you have appointed him, and let him not go down with us to battle lest in the midst of the battle his heart return actually and he be reconciled to his master and then he'll turn against us.
+
+Is not this the David of whom they sang that he has killed his tens of thousands? So Achish called David and he said to him, Surely as the Lord lives, you have been upright and you're going out and you're coming in with me and the host is good in my sight, for I have not found evil in thee since the day that you came to me.
+
+Come to me. Nevertheless, the lords of the Philistines do not favor you. Now return and go in peace that you displease not the lords of the Philistines. David said, What have I done? And what have you found in your servants so long as I have been with thee this day that I might not go and fight against the enemies of my lord the king?
+
+Achish answered and said to David, I know that you are good in my sight as an angel of God, notwithstanding the princes of the Philistines have said he shall not go up with us to battle. Now, get up early. Get up early in the morning. And as soon as it gets light, take off. So, David here really was divinely protected from God as I see it, from fighting against Saul and Jonathan and those of his own friends and all that were there.
+
+God preserved him from this fighting against Israel. So David and his men got up and they returned. And when they came back, they found that the Amalekites had invaded the land. Now, here's something quite interesting. The Amalekites were the ones that God ordered utterly exterminated by Saul. But Saul failed to utterly exterminate them.
+
+He disobeyed the commandment of God, though he lied and said, I've done all that the Lord told me to do. That was a lie. He did not utterly exterminate the Amalekites. And we have pointed out in the past that the Amalekites in the Scripture are a type of the flesh, the flesh life. Now, what's God's verdict for your flesh?
+
+God doesn't say now reform your flesh. God doesn't say bring your flesh under control. God said kill it, crucify it. And if we by the Spirit do mortify or put to death the flesh, we shall live. Know ye not that your old man, your flesh, was crucified with Christ? And God has only one verdict for your old flesh, and that is crucify it.
+
+Utterly destroy it. Give no place for your flesh to fulfill the lust. And even as God ordered utter extermination of the Amalekites, a type of the flesh, so He orders the utter destruction of our flesh. Now, failure to do it, failure to do so is only going to lead to further problems. Had Saul utterly destroyed the Amalekites, obeyed the voice of God, then they would not have been able to invade Ziklag and take David's wives and all of the spoil with them.
+
+Interestingly enough, next week in our study as we get into 2 Samuel, we're going to find that an Amalekite came to David and said, I was passing through Mount Gilboa and I saw Saul and he was fallen on his spear and he lifted himself up and asked me to kill him and I came over and killed him. Saul, who was ordered to utterly wipe out the Amalekites and failed to do so, was ultimately killed by an Amalekite.
+
+You leave a part of your flesh, you know, the liberty, and say, well, that's just a part of the flesh. I want to hold on to that. It will ultimately destroy you. So, the Amalekites made an invasion of the land. They took the city of Ziklag, because of course, all the men were off to war, and several other cities.
+
+David and his men came to the city and they found that it was burned with fire. Their wives and their sons and their daughters were gone. And David and the people that were with him lifted up their voice and they began to cry until they had no voice left. No more power to weep. David's two wives, Hinoam and Abigail, were taken.
+
+And David was greatly distressed. And the people were talking about stoning him. Now, you remember, David had a rough crew. Everyone who was in debt, everyone who was in trouble, everyone who was fleeing from the law, they all came down to David. He didn't have really a choice kind of an army. He had every renegade and outlaw in the land that fled to David.
+
+So, here, when they come back and find that the area had been taken, they're going to stone David. So, David was greatly distressed. For the men of Ziklag, they said, For the men were speaking of stoning him, because all of the people were so grieved, every man for his sons and his daughters. But David encouraged himself in the Lord.
+
+And sometimes that's the only place you can get encouragement. You know, things are so bad that the only place you can find encouragement is in the Lord. And David encouraged himself in the Lord. And that is a marvelous practice, something that we ought to be doing more ourselves, is encouraging ourselves in the Lord.
+
+Now, how did he encourage himself in the Lord? Read the 45th Psalm. Why art thou cast down, O my soul? Why art thou disquieted within me? Hope thou in God. He's going to yet deliver you. You know, he sort of talks to himself. Why am I so discouraged? Why am I so despondent? Why am I so cast down? What's the matter with you, soul?
+
+What's your problem? Don't you hope in God? He's going to yet deliver you. You know, you don't need to be discouraged. God's still on the throne, and we need to just sort of encourage ourselves in the Lord. God is on the throne. God is in control. God is in control even of this situation. And God is going to work.
+
+He's not going to let you down. And he just encouraged himself in the Lord. A marvelous practice and one that we all need to learn because we're all going to face tough situations, discouraging situations where we need to be lifted up and the only place to find that is by turning to the Lord and realizing, hey, it's not out of God's hands.
+
+He's still in control. He's still on the throne. He's going to work these things out. And oh, thank you, Lord. And you get strength. You get courage as you look to the Lord and begin to get the things in balance and in the proper perspective. And so David said to Abiathar the priest, Bring me the ephod.
+
+And Abiathar brought the ephod to David. And David inquired of the Lord saying, Shall I pursue after this troop? Shall I overtake them? And the Lord answered him, Pursue, for thou shalt surely overtake them, and without fail you'll recover everything. So David went, he and the six hundred men that were with him, and they came to the brook Besor where those that were left behind stayed.
+
+But David pursued. He and four hundred men for two hundred stayed back. They were so faint they could not get over the brook. And they found an Egyptian in the field. They brought him to David, and David gave him bread and gave him water. They gave him a piece of cake of figs and two clusters of raisins.
+
+And when he had eaten these, his spirit revived. For he had not eaten any bread or drunk any water for three days and three nights. And David said unto him, To whom do you belong? Where are you from? And he said, I am a young man of Egypt, and I am a servant to an Amalekite. And my master left me, because three days ago I fell sick.
+
+And we made an invasion upon the south of the Cherethites and upon the coast which belongs to Judah and upon the south of Caleb. We burned Ziklag with fire. And David said, Can you bring me down to this company? And he said, If you will swear to me by God that you will neither kill me nor deliver me to the hands of my master, I will bring you down to this company.
+
+And so when they had brought him down, behold, they were spread abroad in all the earth. The Amalekites, they were eating, they were drinking, they were dancing because of the great spoil that they had taken out of the land of the Philistines and out of the land of Judah. They took advantage of the fact that the Philistines and Judah had all gone up to have this big battle.
+
+And so they came in, and women and children left, just were able to wipe out these towns, take the spoil and so forth. So David smote them from twilight even unto the earth. And they were taken unto the evening of the next day. And there escaped not a man except for four hundred young guys that got on camels and rode off.
+
+And David recovered all that the Amalekites had carried away. And David rescued his two wives. And there was nothing lacking to them, neither small nor great, nor sons nor daughters, neither spoil, nor anything that they had taken to them. But David recovered all. And David took all the flocks and the herds which they had driven before them.
+
+And he said, This is David's spoil. And David came to the two hundred men which were so faint they could not follow David, who they stayed back by the brook of Besor. And they came forth to meet David and the people that were with him. And David came near to the people and greeted them. And then answered all the wicked men, the men of Belial, those that went with David.
+
+And they said, Because they didn't go with us, we're not going to give them anything from the spoil that we have recovered, except we'll give every man his wife and children back. And David said, You shall not do so, my brothers, with that which the Lord has given us, who has preserved us and delivered the company that came against us into our hand.
+
+For who will hearken unto you in this matter? But as his part is that goeth down to battle, so shall his part be that tarried by the stuff they shall part alike. And so it was from that day on that he made a statute and an ordinance in Israel unto this day. And that is, those who stay back by the stuff share equally in the spoil with those that go forth into the battle.
+
+Now, this I believe also is a rule of God today, say, in the area of missions. You know, if a missionary is out there, how can he go, the Bible says, except he be sent? And so as we send, and support missionaries staying here by the stuff, so to speak, we share equally in the rewards and the fruit of their ministries.
+
+God's law and ordinance, statute. They that stay by the stuff share equally in the rewards with those that go into the battle. And so, when David came to Ziklag, he sent the spoil to the elders of Judah, to the many cities, I like this verse 31, to those that were in Hebron, and to all the places where David himself and his men were wont to haunt.
+
+And so, in all these areas where David and his men were going around, he sent a lot of the spoil to these various cities and to the people in those cities. Now, the Philistines fought against Israel. The men of Israel fled from before the Philistines and fell down slain in Mount Gilgal. And the Philistines followed hard upon Saul and upon his sons.
+
+And the Philistines slew Jonathan and Abinadab and Melchishua, the Saul's sons. And the battle went sore against Saul and the archers hit him. And he was sore wounded from the archers. Then Saul said to his armor-bearer, Draw thy sword and thrust me through with it, lest these uncircumcised come and thrust me through and abuse me.
+
+But his armor-bearer would not, for he was afraid. Therefore Saul took a sword and fell upon it. So, Saul was hit by an arrow and he knew that he was going to die, but he was afraid that the Philistines would come and mutilate his body, torture him and all when they got him. And so he asked his armor-bearer to kill him, but he was hesitant to do so.
+
+So Saul set out his spear and he fell on his spear. But even then, he didn't die. It says, and he died. But actually, the next chapter, as we get into 2 Samuel, we'll find that actually, he still hadn't died. He was still lying there. And this Amalekite came by and he raised himself up, the spear threw him and pleaded with the Amalekite to kill him, which he did.
+
+Then his armor-bearer Saul was dead. That is, he thought he was dead. He fell likewise upon his sword and he died with him. So Saul died. His three sons, his armor-bearer and all of his men, the same day together. And when the men of Israel that were on the other side of the valley and those that were on the other side of Jordan saw that the men of Israel had fled and Saul and his sons were dead, they forsook the cities and fled and the Philistines came and dwelt in them.
+
+And it came to pass on the morrow that the Philistines came to strip the slain and they found Saul and his three sons fallen in Mount Gilboa. And they cut off his head and stripped off his armor and sent it into the land of Israel. And the Philistines ran about to publish it in the house of their idols and among the people.
+
+And they put his armor in the house of Asherah and they fastened his body to the wall of Beth-shan. Now, Beth-shan is right at the northern edge of Mount Gilboa. It's the end of the range. It was a city that the ruins are still there. In fact, the walls of Beth-shan still stand today. That is the ancient ruins.
+
+They've been excavated some. And the Philistines cut off his head and then pinned his body on the wall there at Beth-shan. And it is near Mount Gilboa. It's a city that was nearby. And so the inhabitants of Jabesh-gilead Jabesh-gilead was over on the other side of the Jordan River when they heard what they had done to the body of Saul.
+
+The valiant men arose and went all night and took the body of Saul and the bodies of his sons from the wall at Beth-shan. And they came to Jabesh and they burnt them there. So they cremated Saul and his sons. Now, occasionally people ask me my opinion of cremation. And it is just this. As far as I'm concerned, cremation is only a speeding up of the natural processes.
+
+Cremation will do in 37 minutes what aromachesis will do in 37 years. It's just a speeding up of the processes of the destruction of this body. Ultimately, your body, even in the grave, is going to deteriorate and go back to dust. Cremation only hastens the process. I see no spiritual kind of a reason for not being cremated.
+
+I don't think that it's wrong if a person wants cremation. I don't see anything wrong with cremating a person's body. I don't see any spiritual significance at all to the whole thing. Saul and his sons were all cremated. And the Bible doesn't say anything against it or, you know, oh, that was so horrible or that was so wrong or whatever.
+
+So, actually, it's only a shell. It's only a tent that has been worn out and is no longer of any value. And what they do to my body after my spirit moves out, I could care less. If my cornea in my eyes are of any value to anybody, they're welcome. If my kidneys are of any value, they're welcome. If my heart is of any value, they're welcome.
+
+They can do whatever they want with this old body. Once my spirit moves out, I could care less. And if they want to save money and cremate the thing, fine. Because I'm not going to be around to worry about it. I'm going to be so stoked with the new model that has been given to me that I have no desire to hang on to the remnants of this old thing.
+
+I appreciate the body that God has given to me. I appreciate the good years. But this old house isn't what it used to be. And as time goes on, it's becoming less all the time. Paul the Apostle said, we who are in this body do what we're supposed to do. We who often groan, earnestly desiring to be delivered.
+
+Not that we would be unclothed, but that we might be clothed upon with a body which is from heaven. And you know, after a certain period of time, you start getting tugs and pulls from the other side. You know, you've seen it all. You know, you live and you think, well, hey, Lord, I'm ready. I've seen enough of this corrupt world.
+
+And this world system. Paul said to the Philippians, hey, I have really mixed emotions. For I have a desire to depart and to be with Christ, which is much better. And yet, I feel that you still need me for a while. And so, for your sakes, I want to still be around. I love you and I love your fellowship and I like being around you.
+
+But man, I'm really tugged also from the other side because it would be so neat to just be with the Lord and to get it on, you know, there with Him. So, this mixed emotions. And I think that there are times when each of us as children of God have these same mixed emotions. We desire to depart and to be with the Lord, which is far better.
+
+And yet, we still feel the responsibilities and the tugs and all from the needs that there exist still for our presence or help or influence or whatever to those that we love around us. So, those mixed emotions. So, they took the bones and they buried them under a tree at Jabesh and they fasted for seven days.
+
+So, the end of Saul's career, a sad and tragic career, a man endowed by God with tremendous abilities, good looks, great physique, a man who had once experienced the anointing of God upon his life, but came to a place of rebellion against God, disobeying the voice of God, thinking that he didn't have to yield to God any longer.
+
+And because he rejected God from ruling over him, God rejected him from ruling over Israel and the sad and the tragic end of the man who played the fool. Body mutilated, cremated by the Philistines, cremated by his friends, buried. And now we, as we start into 2 Samuel, get into the story of David in full swing.
+
+We'll take eight chapters next week. And we'll get in now to the story of David, a very exciting story indeed. This man who is so human and yet the man whom God loved. Shall we pray? Thank you, Father, for thy word. And we pray, Father, that we might learn by the examples and by the lives that we, Lord, would obey you and yield to you and submit ourselves in all ways.
+
+Lord, we pray your blessing now upon these, your children, as they go their separate ways. Let the word of God dwell in our hearts richly through faith. And may we, with all the saints, comprehend what is the length and the breadth and the depth and the height of your love for us as we walk with thee.
+
+In Jesus' name. Amen.

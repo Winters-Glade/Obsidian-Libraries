@@ -1,0 +1,387 @@
+---
+title: "God's Salvation — 1 Samuel 17:45-47"
+source: "C2000 Series (adapted)"
+video_id: "m8cHloFfI2M"
+video_number: 41
+passage: "1 Samuel 17:45-47"
+tags: [t2000-series, kingdom-era, pastor-chuck-smith]
+speaker: "Pastor Chuck Smith"
+series: "T2000 Topical Series"
+type: transcript
+processed: true
+transcript_source: "C2000 series (verse-by-verse teaching)"
+---
+
+# Teaching content adapted from C2000 series covering 1 Samuel 17:45-47
+# Note: The T2000 topical video transcript was unavailable;
+# this content is from Pastor Chuck Smith's C2000 verse-by-verse teaching on 1 Samuel 17:45-47
+
+Shall we turn in our Bibles to the 17th chapter of 1st Samuel? In the 17th chapter of 1st Samuel, we read where the Philistines had gathered their armies together against the children of Israel, and of course, King Saul had gathered his armies together, and they were setting their battle lines, they were digging their foxholes and setting up their battle array on either side of the Elah Valley.
+
+Now, the Elah Valley is an area that is, oh, south and west of Jerusalem, maybe 15 miles. A beautiful little valley, but of course, anything can be made ugly by war. And so, on the mountain on one side was the camp of the Philistines. On the mountain on the other side was the camp of Israel. And in those days, they would take their time, you know, in getting started into a real battle.
+
+They'd come and they'd yell and they'd have their shouts and they'd try to psych each other out. And the children of Israel have been pretty well psyched out by this fellow Goliath who came out every day for fun. In 40 days, the champion from the Philistines, he was from the city of Gath, he was 9 feet 6 inches tall.
+
+He had a brass helmet, a brass coat of mail that weighed 500 or 5,000 shekels, was it? And he had these plates of brass on his legs. He had a brass chest protector. His spear... His spear was like a weaver's beam, huge spear. And man, he'd come out there and stand and he was an awesome sight in the eyes of the children of Israel.
+
+And daily, he would challenge them. He would say, look, facing off here in battle, we can settle it easily. Send out a man to fight me, for I'm a Philistine, you're the Israelites. And if you've got a man in your army that's able to fight me, if he can... If you can defeat me, we'll be your servants.
+
+If I defeat him, then you'll be our servants. And he was daily challenging them for 40 days. Meanwhile, back in Bethlehem, Jesse called his youngest son David in and said, David, I want you to go out to the battlefield and check with your brothers and see how things are going. Take these loaves of bread for them and this bushel of parched corn.
+
+And take these cheeses for their capital. And just find out how things are going and bring us news again of the condition of your brothers. And so David headed off on a chariot towards the battlefield in Elah Valley from Bethlehem, about 20 miles distance. And as he came near and he could see the camp of the Israelites and the Philistines, he got off the chariot and ran to meet his brothers.
+
+And of course, he started sharing with them and the parents' concern. How's everything going? Are you warm enough at night? And, you know, is everything okay? And as he was talking to them, this fellow Goliath came out and made his daily challenge. And so the fellows, when they saw this man, they fled from him and they were very afraid.
+
+And the men of Israel said to David, Have you seen this fellow that comes out every day to defy Israel? The king said, If any man can kill him, the king will make him very rich. He'll allow his family to become tax-free in Israel. And he'll give his daughter to the guy for a wife. David said, The king will do what?
+
+They said, Well, he's going to give the guy a lot of riches and give him his daughter for wife and his family will be tax-free. And so David's brother, Eliab, saw David's interest in this thing. And he said to David, David, Who's watching over your sheep back there in the wilderness, kid? You better get on home in a hurry.
+
+I know your heart. You're just... Dad probably didn't send you down here. You're just down to see what a war looks like and you go home in a hurry. And his big brother is trying to sort of protect him. And David said, Hey, wait a minute. What have I done? There's a cause here. This fellow is defying the armies of the living God.
+
+And if none of you fellows want to go out and fight him, I'll go out and fight. And so a fellow ran and told Saul the fact that they had a volunteer who had volunteered to go out and fight David. And so they brought David in to fight Goliath. They brought David in unto Saul. And Saul said, Oh, you can't fight him, son.
+
+That man is a man of war. You're just a youth. And he's been a man of war from his youth. You can't go out and fight him. And David said, Wait a minute. Don't reject me so fast. He said, One day when I was watching my father's sheep, a lion and a bear came out and grabbed the sheep and began to drag them off.
+
+And I grabbed the sheep out of the lion's mouth so he turned on me. And I took him by the beard and I killed him. And I also killed the bear. And the God who delivered the lion and the bear into my hands will deliver also this uncircumcised Philistine. So Saul said, Well, I'll give you a try here, you know, and take this helmet.
+
+Armor, plate, and so forth. And so they put this armor on David and the helmet. And he's probably just a little kid. And, you know, the helmet probably came down over his ears. And, you know, the armor plate's so heavy. He said, Oh, if you don't mind. I haven't tested this stuff. I don't think I better use this.
+
+I'll just go out as I am. And so David headed toward the giant. Now, one interesting thing about the Elah Valley, there is a dry... There's a dry stream bed in the bottom. Of course, it's got water in it when it rains. But it's one of those typical Southern California type of rivers, you know, that only gets water when it rains.
+
+But, interestingly enough, when God created the earth, I have in my office, actually, some... And I should have brought some out tonight. But when God created the earth, knowing what was going to transpire in this particular... In this particular valley, when God made this valley and this particular little stream bed, God just placed thousands of smooth, round stones in this particular stream bed.
+
+I've never seen any stream bed with so many smooth, round stones. Beautiful stones for a sling. And I've got a bunch of them in my office. I like to pick them up out of that stream bed because they're so perfect for a sling. And so David... David stopped by and he picked up five smooth, round stones.
+
+And there's just bundles of smooth, round stones in this stream bed. And he headed up the hill towards the giant. Put them in his little shepherd's sack. Headed up the hill. Well, when Goliath saw David coming, he was outraged. He said, Am I a dog that you'd send a child out to fight me? And he began to curse David by his gods.
+
+And he said, All right, kid, you're asking for it. I'll chop you up and feed you to the birds. And David said to the giant, You come against me with a sword and a spear and a shield, but I come against you in the name of Jehovah of hosts, the God that you have defied. And He is going to deliver you into my hand and I'm going to chop up your whole army and feed it to the birds.
+
+David was assured not only a victory over the giant, but over the whole army. The whole host of the Philistines. And so David took one of the stones out of his little pouch, put it in his sling, and let fly towards the giant. And he sunk the stone right into the forehead of the giant. And the giant fell down and David went running up because he didn't even have a sword.
+
+All he had was the sling. He didn't even have a sword. He pulled the sword out of the sheath of the giant, his own sword, and David used it and hacked off his head. And then he, he grabbed it by the hair and held it up. Probably began to swing it around yelling. And all of the Philistines, when they saw this, their champion destroyed by a child, panic gripped them and they began to flee.
+
+And of course, the men of Israel, when they saw this, their hearts were encouraged and they all came out of their tents and began charging after the Philistines. And there was a great slaughter of the Philistines that day. And so, the Lord delivered the Philistine there in the hands of David. Now, when Saul saw David go out against this fellow, he said to his captain Abner, who is this young fellow?
+
+Who is this dad? And Abner said, I don't know. As my soul lives, I can't tell you. And so the king says, inquire and find out whose son he is. And so as David returned from the slaughter of the Philistine, Abner took him and brought him before Saul with the head of the Philistine, still in his hand. It was a trophy that David had.
+
+He wasn't going to let the thing go. He was going to carry it around for a few days. It must have been a big head too. You know, a guy nine foot six inches tall. And he said, whose son are you, David? David said, I'm the son of thy servant Jesse, the Bethlehemite. Now, when it came to pass, when he had made an end of speaking to Saul, that the soul of Jonathan, Saul's son, was just sort of knit with the soul of David.
+
+Jonathan loved him as himself. Actually, there came a bond between Saul's son and David. There was a bond between them. There was a bond between them. Saul's son, Jonathan, and David. They were really sort of two of a kind. They were both of them very adventuresome. They were both of them very daring.
+
+Both of them with great confidence in God, great love for the Lord. It was Jonathan, you remember, last week, we were studying about him when they were facing the Philistines. He was the one that woke up his armor bearer and said, hey, I've been thinking this morning, it doesn't make any difference to God if we have a whole army or just ourselves.
+
+If God wants to deliver the Philistines in the hand, He can do it to just two of us. He doesn't need the whole army. Let's go over this morning and see if God wants to deliver the Philistines into the hands of Israel. And so he with his armor bearer took on the whole army of the Philistines. Just find out if God wants to deliver because God's bringing up if he wants to deliver them.
+
+He doesn't need a whole army. He only needs two. And God delivered the Philistines into the hand of Jonathan and his armor bearer that day. And so Jonathan and David were really sort of two of a kind. So they did. They just immediately hit it off. They just, you know, that kind of a thing where a bond was formed, a deep bond was formed between these two fellows, Jonathan and David.
+
+Now, Saul sort of kept David. I mean, he just, you know, also at this point had a very great admiration and liking for this brave, daring young kid. And so he wouldn't let him go home. He's going to keep him now there with the army. And Jonathan and David made a covenant because they loved each other so deeply.
+
+And Jonathan stripped himself of the robe that was on him and gave it to David in his garments and his sword and his bow and his girdle. I mean, he just gave David, hey, you know, here, take my sword, my bow, my, you know, he just tried to show his expression of love towards David. And so David went with Saul wherever Saul would go.
+
+And David behaved himself very wisely. So Saul sent him over the men of war and he was accepted in the sight of the people. Now, though he was just a very young fellow, he was sent over a part of the army and these guys respected him so much from, of course, God's deliverance of the Philistine into his hand that they just accepted him.
+
+But then trouble began to arise because as they would come into a village after David had returned from the slaughter of the Philistine, that the women came out of all of the cities of Israel, singing and dancing to meet King Saul with their tabrets and with joy and with instruments of music. And the women would sing back and forth one to another.
+
+And one group would sing, Saul has slain his thousands. Now, he was used to this. The women had started this when Saul would come back from victory. They'd come out and they'd sing with their tambourines and they'd go through their dances singing Saul has killed his thousands. Now, in this particular case, they started off and, of course, old Saul was just, you know, all right, you know, that's me, folks.
+
+You know, here I am. And then a second company of women sort of answered. And David, his tens of thousands. Well, to a fellow who was having a problem with pride, this was a little much. And Saul became extremely jealous of David and he says, what does he want more than this? The kingdom? And, of course, he was not aware of the fact that God had already chosen David to be the king and that God had anointed David to be king over Israel.
+
+And so it is interesting that immediately he began to suspicion the fact that the kingdom was in jeopardy. What does he want more than this? The kingdom? And Saul was very angry. And he said, look, they've ascribed to me thousands, but to David tens of thousands. And so, from that day onward, Saul was watching David very carefully.
+
+Now, it came to pass on the next day that an evil spirit came upon Saul, one of these bad, ill-tempered days for him. And he prophesied in the midst of the house and David played with his hands at other times. And Saul had a javelin in his hand and he thought, I'll thrust that kid through and pin him to the wall.
+
+So he threw the javelin at David and David nimbly dodged it. He dodged the thing, but twice that day, he tried to ram the javelin through David and David dodged it both times, but David figured it's time for me to get out of here. And so he departed. And so Saul then made him a captain over the thousand and he went out into the field, but David behaved himself very wisely and the Lord was with him.
+
+So Saul began to get a little afraid of David when he saw how wisely he was going to be. He saw how wisely he was going to be. He saw how wisely he kept himself and how he did always the right things. But Israel and Judah loved David because he was there among them and he would go in and out before them.
+
+So Saul said, Here, David, you know, is Mereb, my oldest daughter, and of course I promised my daughter to anyone who would kill the Philistine. And so he said, She can be your wife, but be valiant for me and fight the Lord's battles for falsehood. For Saul said, Let the Philistines kill him and I won't have to lay my hand on him.
+
+He figured if he'd send him out against the Philistines, they'd kill him and he wouldn't have to kill him himself. But David said to Saul, Hey, who am I? What is my life? What is my father's family in Israel? That I should be a son-in-law to the king. And it came to pass when the time was supposed to be that Mereb was supposed to be given to David as a wife, Saul switched a route and gave her to somebody else.
+
+He was supposed to pull the dirties so he went on David and gave her to someone else. Now, Saul had another daughter and Michelle actually loved David very much. And when they told Saul, Hey, Michelle's really in love with David, Saul said, Oh, that's all right. I will give him her that she may be a snare to him.
+
+So I don't know what kind of a daughter she was. I don't know. But he figured she'd be a snare to David and give her to David. Give him problems, which she did in time. That the hands of the Philistines may be against him. So Saul said to David, You're going to be my son-in-law today. And David said, Who am I?
+
+I'm poor. I'm a poor man. My family said, I don't have any dowry to give. And so Saul's servants spake the words in the ears of David. And they said, Saul wants you to be his son-in-law. He wants you to marry his daughter Michelle. And David said, Hey, do you guys think it's just a light thing to be the king's son?
+
+I'm a poor man. I'm lightly esteemed. And so they came back and they told Saul, Hey, he doesn't want to do it. He doesn't feel that he doesn't have the dowry or anything else. So Saul said, Go back and tell him that I really don't want any dowry of money. And he set up a dowry. He set up a dowry regarding the Philistines.
+
+And David went out and gave him double dowry. And so Saul then, of course, was sort of shocked and surprised. He figured David would get wiped out in going out against the Philistines. But he gave then his daughter Michelle to David as a wife. Now in the 19th chapter, we find Saul's third attempt to kill David.
+
+David spoke to Jonathan, his son, to all of his servants, and he told them that they should kill David. But Jonathan, because of his love for David, said to his father, or he said to David, David, my dad seeks to kill you. I pray, take heed to yourself until the morning and abide in a secret place. Hide.
+
+And I will go out and stand beside my father in the field where you are, and I'll commune with my father of thee, and I'll see, what I see I'll tell you. In other words, hide yourself until I can find out really what my dad is thinking. So Jonathan spoke good of David to Saul, his father, and said, let not the king sin against his servant and against David, because he hath not sinned against you, and because his works have been very good toward you.
+
+For he did put his life in his own hand, and he slew the Philistine. And the Lord wrought great salvation for all Israel. You saw it. And you did rejoice. Why then will you sin against innocent blood and slay David without a cause? And Saul hearkened to the voice of Jonathan, and Saul swore as the Lord liveth, he shall not be slain.
+
+So there was an apparent change of attitude for a moment. Now, Saul does manifest almost a schizophrenia. I would imagine that if a psychiatrist would read the case history on Saul here, he would probably be classified as a schizophrenic. He would have these periods of great depression. He would have periods of remorse and periods of change.
+
+Oh, David, my son, you're like a son to me and speak great words of love. And then next day, try to ram him through with a javelin again. So, he was very vacillating. Now, Jonathan, speaking these kind words to his dad about David, Saul responded and he said, as the Lord liveth, he will not be slain.
+
+So Jonathan called David and Jonathan showed him all those things and Jonathan brought David to Saul and he was in Saul's presence as in times past. And there was war again and David went out and fought with the Philistines and slew them with a great slaughter and they fled from him. And the evil spirit from the Lord was upon him.
+
+And upon Saul, as he sat in his house, his javelin was in his hand and David played with his hand on the harp and Saul sought to smite David even to the wall with the javelin. But David slipped out of Saul's presence and this javelin went into the wall and David fled and escaped that night. So Saul sent out messengers to David's house to watch him and to slay him in the morning.
+
+And Michelle, David's wife, told him saying, now if you don't save your life tonight, tomorrow you're going to be dead. So Michelle let David down through a window and he fled and escaped. And then she took the bed and put pillows and all under the blankets so it looked like someone was lying there. And so in the morning when the messengers were going to kill David, they said, oh, he's sick.
+
+They said, we want to bring him to Saul. They said, he's sick. He's in bed. So they went to Saul and they said, we can't bring him. The guy's sick in bed. He said, bring him with a bed and all. So he can slay him. So they went back to get David and then they found out that it was just the pillows under the blankets and all.
+
+David was gone. And so he got angry with his daughter Michelle. He said, what are you doing? You know, turning against your own father, your own flesh and blood to protect David and all. And so Michelle actually said to her dad, well, she said, he told me, let me go or I'm going to kill you. So she lied.
+
+She lied her way out of it. So David fled and he came to Samuel there in Ramah. And he told him all that Saul had done to him. And Samuel went and dwelt in Naoth. And it was told Saul saying, behold, David is at Naoth in Ramah. And so Saul sent messengers to take David. And when they saw the company of the prophets prophesying and Samuel standing appointed over them, the Spirit of God came upon the messengers of Saul and they all prophesied.
+
+So here's an interesting, interesting thing. Samuel was there at Naoth and David was there. And so they sent these guys out to take David in. And God's Spirit just came on them. And they just started prophesying. So he sent out another group of messengers to get David. And as they came near where the Spirit of God was working, the Spirit of God came on them, they started prophesying.
+
+So he sent out a third company of messengers to get David. And when they came into the scene and all that's going on, they began to prophesy. He began to prophesy. So Saul came down himself. And the Spirit came on Saul. And he took off his clothes. He laid there naked all night prophesying. And so that they began to say, Saul among the prophets.
+
+Again, that proverb that came out early in Saul's career. Now David fled from Naoth in Ramah. And he came to Jonathan. He said, What have I done? What is my iniquity? What is my sin that your father, your father is seeking my life? And Jonathan said to him, God forbid, thou shalt not die. Behold, my father will do nothing, either great or small, but he'll show it to me.
+
+And why should my father hide this thing from me? Is it not so? David said, your father's trying to kill me. Jonathan said, oh, he's not really trying to kill you. He wouldn't do anything unless he told me first. And he has not said anything about it. And David swore moreover and said, your father certainly knows that you and I are good friends.
+
+And so he said, don't let Jonathan know this, lest he is grieved. But truly, as the Lord liveth, and as thy soul liveth, there is but a step between me and death. David just said, man, I'm living on a border of eternity. There's just a step between me and death. Your dad's after me and he's trying to kill me.
+
+Then Jonathan said to David, whatever you want, I'll do. And David said to Jonathan, behold, tomorrow is the new moon. And I'm supposed to be sitting there, at your father's feast. And I'm not going to show up. And I want you to pick up on your dad's attitude when I don't show up. And if he says, where's David?
+
+Just tell him, well, his family is having an annual get-together in Bethlehem. And David pleaded with me that he might go and spend this annual family affair with his family. And so he did. And he did. And he did. And he did. And he did. And he did. And he did. And he did. And he did. And he did. And so he didn't come.
+
+And just notice what your dad's attitude is when I don't show up. Because he's really planning to kill me when I come and sit there at the table. So Jonathan was a little skeptical, but he said, okay, we'll let you know. But he said, what we'll do is you wait out here behind this rock and I'll come out with my servant.
+
+When I really found out what my dad's feelings are, I'll come out with my servant and I will show you what my dad's feelings are. And I will shoot my arrows and send him out after them. And if I call to him and I say, the arrows are this side of you, then they've fallen short, then you'll know that it's okay that my dad is in a good mood and he doesn't really have any intentions of killing you.
+
+But if I say to the young fellow, the arrows have gone beyond you, then you'll know it's time to flee because my dad is angry and is thinking about killing you. So Saul, the new moon, the feast of the king and Abner, his captain, was there. Jonathan's place was there, but David's place was empty. And Saul didn't say anything the first day.
+
+He figured, well, he probably isn't ceremonially clean. You know, maybe he's killed someone today, has blood on his hands, and so he wants to, you know, go through the cleansing rite before he comes. He'll be here tomorrow. So the next day when David's chair was empty too, he said to Jonathan, Jonathan, where's David?
+
+And Jonathan said, well, his family's having an annual get-together. It's a family gathering. And David pleaded with me that he might go and spend this celebration with the family in Bethlehem. And Saul's anger was kindled against Jonathan. And he said, thou son of a perverse woman, don't I know that you've chosen the son of Jesse to your own convenience?
+
+To the confusion and the confusion of your mother's nakedness? For as long as the son of Jesse is living, you're not going to become king after me. He's going to have the kingdom. Wherefore now, send and fetch him unto me, for he shall surely die. So Saul, of course, gave forth now his true feelings.
+
+Jonathan saw what was in his dad's heart. And Jonathan said, why should he be slain? What evil has he done? And Saul, cast his javelin at Jonathan. I mean, the guy was just, you know, enraged. And so just because his son dared to ask a question, why should you kill him? What has he done wrong? Well, Saul let fly with the javelin towards his son Jonathan.
+
+And so Jonathan knew that he had determined to kill David. So Jonathan arose from the table in fierce anger. He was really upset with his dad. He did not eat meat on the second day of the month. And he was grieved for David because his father had done, done him this shame. So it came to pass in the morning that Jonathan went out into the field at the time appointed with David.
+
+And the little fellow was with him, the little boy to chase his arrows. And he said to the lad, run out into the field and find the arrows which I shoot. And so as the lad ran, he shot the arrows beyond him. And when the lad was come to the place of the arrow which Jonathan had shot, Jonathan cried after the lad and said, is not the arrow beyond you?
+
+And so Jonathan said, hurry and gather together all of the arrows. And so the fellow gathered together all the arrows and they brought them back to Jonathan. So Jonathan gave him all of his artillery and said, take it back to town. And after the little boy left, then David came out from behind the rock where he was hiding.
+
+And he bowed himself. They kissed each other. They wept with one another until David acceded. And Jonathan said to David, go in peace for as much as we have sworn both of us in the name of the... Jehovah saying that Jehovah beat between me and thee and between my seed and thy seed forever. And he arose and departed and Jonathan went into the city.
+
+Now David and Jonathan had made a bond. Jonathan realized that somehow God was going to give the kingdom to David and he said, I just want you to, you know, treat my family well when you come into the kingdom and all of my descendants. Let there be a bond between us. And David made an oath to Jonathan that he would treat the house of Saul with respect and kindness.
+
+And in love. So David now fled to Nob, to Ahimelech, who was the priest. And Ahimelech was afraid at the meeting of David and said to him, why are you alone? Why aren't there men with you? You know, David was the captain over a thousand men. Where are your troops? David said to Ahimelech the priest, the king has commanded me on a business and said, let no man know anything of the business whereabout I'm sending you and what I have commanded thee.
+
+And I've appointed my servants to such and such a place. So David's saying, well, I'm a CIA agent. I'm on a special mission for the king and nobody knows, you know, about this special mission. It's just a secret mission I'm on for King Saul. And so my men are over here and I need some bread for them.
+
+Well, the priest said, I don't have any common bread. All I've got is bread. All I've got is bread. All I've got is bread. All I've got is bread. All I've got is this bread that I've baked for the show bread for the table of the Lord. It was that bread that had been sanctified to set out before God on the table of show bread.
+
+David said, well, give it to me, five loaves, and for me and my men. And he said, well, are the men clean? He said, have they not touched women? He said, we haven't been around women for at least three days since we've been on this trip. And so the fellow gave them the holy bread. Which was not lawful for any man to eat but the priest.
+
+And they took it and gave it to David and his men. Now in the New Testament, Jesus makes reference to this particular incident. When the Pharisees are trying to nail him in some of the fine technical aspects of the law, Jesus said, did not David take the show bread which was not lawful for him? For a man to eat?
+
+They were getting on him because they felt he had violated the law of the Sabbath. You know, one of the fine points of the law of the Sabbath. The disciples had gone through the field on the Sabbath day and they took some wheat, corn of wheat. They called it the wheat, you know, the tassel of wheat. They called it the corn actually.
+
+And they took it and they were rubbing it in their hands. Now, you can take the dry wheat from the stock and you can rub it in your hands and as you rub it in your hands, it has the effect of sort of threshing it. What you're doing is rubbing off the hard outside hull. And then you can hold it in your hands and blow on it and you can actually blow off the hulls.
+
+And then you can eat the wheat raw and it's actually very good. One of the trips over in Israel, we were there in the latter part of May when the wheat fields were about ready for harvest. And up there, up in the area near Mount Gilboa where Saul and Jonathan were ultimately killed, which is up at one end of the valley of Megiddo.
+
+It's about 8 miles, 10 miles south of the Sea of Galilee. Mount Gilboa there. There in that valley, beautiful wheat fields. And so, we were there and I went out and I took some of this wheat and I rubbed it in my hands and blew off. And I took the hulls and ate this wheat. And of course, when we were kids, we discovered out of the chicken feed, if we took the wheat, picked the wheat out of the chicken feed when we were kids, it's soft enough that you can crunch it in your teeth and chew it.
+
+And if you chew it long enough, it turns into a gum. And we used to always chew wheat gum when we were kids. We didn't have enough money to buy regular chewing gum. So, we'd pick all the wheat out of the chicken feed and then we'd chew it. And after a while, it turns into gum and we'd have our gum with the wheat.
+
+And so, it's very nutritional, very healthy. And so, the disciples were with Jesus. They were hungry. It was the Sabbath day. They were going through the wheat fields, so they began to pick the corn of wheat and rub it in their hands and blow it off and began to eat it. And so, they said, Oh, look at your disciples.
+
+They're doing that which is not lawful to do on the Sabbath day. You're not supposed to do any work. And so, that constituted work, rubbing the wheat in your hands. And so, Jesus said, Don't you remember what David did when he was hungry? How he went in and ate the show bread which was not lawful for a man to eat?
+
+So, Jesus makes an allusion to this thing of David showing that human need rises above the law. Human hunger. These guys are hungry. Forget this little work bit of rubbing the wheat in your hands. They're hungry. And the hunger supersedes the fine point of the law. Even as with David, the guys are hungry.
+
+Yes, it's not lawful that they should eat this show bread. Yes, it's supposed to be, you know, only there for the priest to eat, but the guys are hungry. And so, the human hunger supersedes the fine points of the law. The point that Jesus was making. And of course, using this particular instance with David as the illustration of the point, which of course everybody accepted that David had done.
+
+In other words, there was no wrongdoing here. So, the priest gave him the hallowed bread. Verse 6, For there was no bread except the show bread that was taken from before the Lord and put hot bread in the day when it was taken away. So, they ate the bread that had been sitting there all week before the Lord when it was replaced by this new hot bread.
+
+Now, a certain man of the servants of Saul was there that day. And his name was Doeg. And he was an Edomite. Doeg, and you could very well pronounce it dog because he turned out to be a real dog. And he was the head over the herdsmen that belonged to Saul. And David said to Ahimelech, Do you have here any spear or any sword?
+
+For I didn't bring any sword or weapons with me because the king's business required haste. And the priest said, Well, I have the sword of Goliath that you took from him when you killed him and it's wrapped here in a cloth behind the ephod. And so if you will take it, there's no other but that one here.
+
+So David said, Ah, there's no sword like that one. Give it to me. So David arose and fled that day for fear of Saul. And he went to Achish, the king of Gath. So actually, he fled down to the camp of the Philistines, to the enemy, the city of Gath, and to king Achish. And the servants of Achish said unto him, Is not this David the king of the land?
+
+Did not they sing one to another of him in dances, saying, Saul hath slain his thousands and David his ten thousands? And David laid up these words in his heart and he was afraid of Achish, the king of Gath. And they said, Hey, this is that David, you know, who wiped out the giant. This is David who was singing about killing his thousands, you know.
+
+And so David thought, Oh, man, I've had it down here. The king's going to do me in. At this point, for part two of this message. So they brought David in before the king and David changed his behavior and he acted like he was a madman. He began to scrabble on the doors of the gate and he let his spit run down his beard and just, you know, acted like he was insane.
+
+And so Achish said to his servants, Hey, the guy is crazy. Why have you brought him to me? I don't need any madmen that you've brought this fellow to play a madman in my presence. Shall this fellow come into my house? And so he sent David away and David escaped, of course, out of the guy's hand. Of course, he wasn't afraid of some guy that was so weird.
+
+I personally like it. I think David is just a, you know, he's a neat kind of a shrewd kind of a guy. I just like him. And yet, here's an interesting thing. My hero, but I sort of admire his wit and his, you know, his little act here in getting out of trouble. Yet there's an interesting verse in Scripture that says the fear of man brings a snare.
+
+Now it does definitely declare that David was afraid of Achish. And the fear of man can oftentimes cause a person to act like a fool. It brings a snare. And so my brave David, not afraid of the giant, is afraid of the king. And so acting like a madman, he's reduced to a man with spit running down his beard and scrabbling on the doors and the gates.
+
+But he did escape out of the hand of Achish. And he went from there and he escaped to the cave at Adullam. And when his brother and all of his father's house heard of it, they went down to him there. And everyone that was in distress and everyone that was in debt and everyone that was discontented gathered themselves unto him.
+
+And he became a captain over them. And there came about 400 men. So from out of all of the land, David began to gather together a band of men, a motley crew to be sure. Everyone who was distressed, everyone who was in debt, everyone who was discontented, they gathered together with David down there at Adullam.
+
+And David went from there to Mizpah of Moab. So he actually crossed over in the area of the Dead Sea, went over to the other side to Moab. And there he established his family. Now he knew that Saul's anger against him would ultimately turn against his family. So he said to the Moabites, Let my father and my mother dwell here until I find out what God's going to do with me.
+
+And so he brought them before the king of Moab and they dwelt with the king of Moab all the while that David was in the hold. Verse 4. Now the word hold is masada. And there are those who believe that actually David was there in the hold or in the fort of Masada, which of course was later really developed by King Herod as a winter palace and a fortress.
+
+So it is possible David was down in that area of the Dead Sea. It is possible that this is indeed a reference to Masada. But he was there in the hold or in the fort wherever it might have been. Now I want you to put a little note here to read Psalm 57 and Psalm 142. Both of these psalms were written at this particular time of David's experiences.
+
+And so I want you to go home tonight and read these two psalms. But I want you to be thinking now of the background of these two psalms. As David writes Psalm 57 and Psalm 142, he's down there. Saul is pursuing him. He's just taken his parents to safety over in Moab. He's hiding there in the wilderness area down near the Dead Sea.
+
+And the prophet Gad said unto David, Abide not in the fortress or in the hold in Masada. Depart and get thee to the land of Judah. Then David departed and came into the forest of Herod. Now a prophet by the name of Gad, whoever he was, told David not to stay there but to get into Judah. So when Saul heard that David was discovered and the men that were with him, now Saul was staying in Gibeah under a tree in Ramah, having his spear in his hand and all of his servants were standing around him.
+
+And Saul said to his servants that stood about him, Hear now, ye Benjamites, this son of Jesse, will he give every one of you fields and vineyards and make all of you captains of the thousands and captains of hundreds? That all of you have conspired against me? In other words, he is saying, Hey, you Benjamites, I'm a Benjamite.
+
+Look what I've done for you. And you know, if you elect me president, I'll do this and this and this. I mean, it's sort of a political speech against David. And you know, if David's elected, if David's accepted, he's not going to treat you Benjamites.
+
+So well, he's from the house of Judah. You know, Jesse and so forth. He's not going to be as nice to you as I've been to you. He's not going to make you the captains over the thousands and hundreds. He's not going to give you fields and all. And here, look what I've done for you and you guys are turned against me.
+
+You're in favor of David instead of me. None of you will really tell me where he is. You've conspired against me. And you haven't shown me that my son Jonathan has made a league with David. There's none of you that's sorry for me. Then answered this dog fellow. And he said, I saw this son of Jesse come to Nob, to Ahimelech the son of Ahitab.
+
+And he inquired of the Lord for him. That is Ahimelech the priest. He inquired of the Lord for David and gave him food and gave him the sword of Goliath the Philistine. So the king sent to call Ahimelech the priest and all of his father's house. The priests were there at Nob. And all of them came to the king.
+
+Now Saul said, Hear now, thou son of Ahitab. And he answered, Here I am, my lord. And Saul said unto him, Why have you conspired against me, thou and the son of Jesse, in that you have given him bread and a sword and you've inquired of God for him that he should rise against me to lie in wait as at this day?
+
+And Ahimelech answered the king and said, And who is so faithful among all of your servants as David, which is the king's son-in-law and goes at your bidding and is honorable in thy house? Did I then begin to inquire of God for him? Be it far from me. Let not the king impute anything unto his servant nor to all of the house of my father, for thy servant knew nothing of all of this less or more." What are you talking about?
+
+I don't know what you're talking about, Saul. I didn't really conspire. I'm not against you. And you don't have any servant that's more faithful. He's more faithful in all of your house than David. And the king said, You shall surely die, Ahimelech, all of you in your father's house. And the king said unto the footman that stood about him, Turn and slay the priests of the Lord, because their hand also is with David.
+
+And because they knew when he fled, they didn't show it to me. But the servants of the king would not put forth their hand to fall upon the priests of the Lord. But the king said to Dog, Turn thou and fall on the priest. And Dog the Edomite turned and he fell upon the priest, and slew them that day eighty-five persons that wore the priest's gowns.
+
+Terrible, terrible crime. And nobbed the city of the priests, he smote with the edge of the sword, both men, women, children, little children that nursed, oxes, asses, sheep, with the edge of the sword. That which he wouldn't do against the enemies of God, he is now doing against the servants of God.
+
+And one of the sons of Ahimelech, whose name was Abiathar, escaped and he fled after David. And after David, Abiathar showed David that Saul had slain the Lord's priest. And David said to Abiathar, I knew at that day when Dog the Edomite was there that he would surely tell Saul, I have occasioned the death of all of the persons of your father's house.
+
+Stay with me, don't be afraid, for he that seeks my life is seeking your life, but with me you'll be safe. So the one escaped to David from the house of Ahimelech, and David felt really responsible for the death of all those families. He knew that he made a mistake in letting this dog go. He should have killed him.
+
+Then they told David, saying, Behold, the Philistines are fighting against Keilah, and they're robbing their threshing floor. So David inquired of the Lord, saying, Shall I go and smite these Philistines? And the Lord said to David, Go and smite the Philistines and save Keilah. And David's men said unto him, Behold, we're afraid here in Judah.
+
+How much worse if we come to Keilah against the armies of the Philistines. Now David didn't have a very brave army at this point. The guy said, Hey, man, we're afraid here. It's even worse if we go against the Philistines. So David inquired of the Lord again. And the Lord answered him and said, Arise and go down to Keilah, for I will deliver the Philistines into your hand.
+
+So David and his men went to Keilah, and they fought with the Philistines, and they brought away their cattle and smote them with a great slaughter. So David saved the inhabitants of Keilah. Now it came to pass when Abiathar, the son of Ahimelech, had fled to David, that he came down with the ephod in his hand.
+
+Now it was through the ephod that they inquired of the Lord. And so it was told Saul that David was come to Keilah. And Saul said, God has delivered him into my hand because he's gone into a walled city.
+
+Now we can surround him and capture him. So Saul called all of the people together to war to go down to Keilah to besiege David and his men. And David knew that Saul was on his way down. So David inquired of the Lord, and he said, Lord, will the men of Keilah deliver me into the hands of Saul? Now David had delivered the city from the Philistines, but yet the men weren't really faithful to David.
+
+And the Lord answered and said, Yes, the men of Keilah will deliver you into the hands of Saul. So David and now his band had grown to about 600 men. They fled from Keilah, and they fled to the area of the wilderness and the strongholds that were in the mountains and wilderness of Ziph. And Saul sought him every day, but God delivered him not into Saul's hand.
+
+And David saw that Saul was come out to seek his life. And David was in the wilderness in a wood. And Jonathan, Saul's son, arose and went to David in the wood. And he strengthened his hand in God. And he said to him, Fear not, for the hand of Saul my father shall not find thee, and thou shalt be king over Israel.
+
+And I shall be next unto thee, and that also Saul my father knows. Now, Saul was becoming aware of the fact that God's anointing was off of his life, and Saul knew that David was going to be the king. And what he's trying to do is hold on to the kingdom that he knows is not his. Now, Jonathan, his son, recognized that David was going to be king also.
+
+And Jonathan said, I'll be your right hand man. Jonathan is actually taking a very beautiful attitude towards David. His love was so great that he was willing to let David be exalted. He was willing to just be a helper, a right hand man to David. He was willing to abdicate the throne for David's sake, to step down, to let David rule.
+
+I know you're going to be king. I'll be your right hand man. Don't be afraid. My dad won't catch you. He won't find you, you know, because, you know, this is what God has in mind. And Jonathan was expressing these things to David. So the two of them made a covenant before the Lord. And David stayed in the wood and Jonathan went to his house.
+
+Then the Ziphites came to Saul and Gibeah saying, David's hiding with us in the strongholds in the wood in the hill of Hekelah, which is on the south of Jezemon. Now therefore, O king, come down according to all the desire of your soul. Come down to our part, and our part shall be to deliver him into the king's hand.
+
+So Saul said, Blessed be ye of the Lord, for ye have compassion on me. What a phony character. Using spiritual language in such evil things. You know, it's possible to just get sort of a spiritual jargon going and you don't have enough discernment to know when to use it. You use it even for corrupt things.
+
+You know, praise the Lord, I really ripped him off, you know. And it's horrible the way people can use spiritual language for such corrupt things. Oh, blessed be ye of the Lord, you've shown compassion on me. No. Not all who say Lord, Lord are going to enter into the kingdom of heaven. A lot of people use the right jargon, spiritual jargon, but they're just not going to make it.
+
+It's not what you say. It's not what comes out of a man's mouth that defiles him. Or it's actually, it is what comes out of the mouth, but this dualness out of the mouth. With blessings out of the same fountain proceeds, you know, bitter and sweet water. Blessings and curses, such things should not be.
+
+So here's the blessing, but soon curses. Go I pray you and prepare and know and find out the place where he's hiding and who has seen him and be careful because this guy is very subtle. And take all knowledge of all of the lurking places where he hides himself and come and tell me of certainty. And I'll go with you and it will come to pass that if he's in the land, I'll search him out throughout all the thousands of Judah.
+
+And they arose and went to Ziph before Saul, but David and his men were in the wilderness of Maon in the plain in the south of Jezemon. And so Saul also with all of his men went to seek him and it was told David wherefore he came down into the rock and abode in the wilderness of Maon. And when Saul heard that, he pursued after David in the wilderness of Maon.
+
+And Saul went on this side of the mountain and David and his men were on the other mountain and David made haste to get away for fear of Saul for Saul and his men had circled David and his men had encompassed him to take them. So David had been surrounded by Saul's men. Looks like he's had it. But there came a messenger unto Saul saying, Haste and come for the Philistines have invaded the land.
+
+Wherefore Saul returned from pursuing David went against the Philistines. Therefore they called the place Silah Hamalekoth which is the crag of divisions. And David went up from there and he dwelt in the strongholds of En Gedi. So David now headed again down towards the wilderness area of the Dead Sea.
+
+En Gedi is about oh, twenty miles probably from where the Jordan comes into the Dead Sea. On the west bank of the Dead Sea. And En Gedi is a beautiful spot. The word En Gedi means wild goats. And it is a place where there are still a lot of the ibex, the wild goats of Israel. But the neat thing about En Gedi, you see the Dead Sea there is about twelve hundred and eighty-two feet below sea level.
+
+Because you are so low there are springs. Because you are at a thousand feet below sea level. Actually the spring of En Gedi is at about eight hundred feet, seven hundred feet below sea level. And it just springs out there from the pressure of the underground water and all. There is a beautiful spring and there is the neatest waterfalls and fern canyons and wild fig trees growing up the sides of the canyons.
+
+And all kinds of caves around there. And just a beautiful place to hide out. As far as just, you know, you've got your water. You've got your wild goat to eat. And it's just an excellent place to hide out. A very beautiful little valley in the midst of a vast wilderness. That whole Dead Sea area is just a vast wilderness.
+
+But En Gedi is a beautiful oasis. And of course, because of the heat, it stays warm down there year round. It's very fertile around En Gedi. A lot of date palms. They grow excellent watermelons in winter time. And it's just a neat place. And that's where David was now hiding out from Saul. There in the strongholds at En Gedi.
+
+Now it came to pass when Saul was returned from following the Philistines, they told him David's in En Gedi. So Saul took three thousand of his chosen men out of all of Israel. They went to seek David and his men upon the rocks of the wild goats. En Gedi means wild goats. And he came to the sheep coats by the way where there was a cave.
+
+And Saul went in to cover his feet. That is to go to sleep. And David and his men remained in the sides of the cave. So David was hiding in this cave. And Saul came to, and you know, went to Saul. Went to sleep in the very cave where David and his men were hiding up in the sides of the thing. And the men of David said unto him, Aha!
+
+Behold the day of which the Lord has said unto you, Behold, I will deliver your enemy into your hand, that you may do to him as it seems good unto thee. So David arose and cut off the skirt of Saul's robe secretly. Now it came to pass after that that David's heart smote him because he had cut off Saul's skirt.
+
+He did it and then he thought, Oh, that's not right. This guy's a king, you know, and he shouldn't, you know, have his skirt cut off. And he felt bad about it. And David said, The Lord forbid that I should do this thing to my master, the Lord's anointed, to stretch forth my hand against him, seeing he is anointed of the Lord.
+
+So David stayed his servants with these words and he would not allow them to rise against Saul. But Saul rose up and went out of the cave and went his way. The men, of course, wanted to do Saul in. And David forbid them to do it. And after Saul had gotten down the hill away, David arose also afterwards and went out of the cave and he cried after Saul saying, My Lord, the King!
+
+And when Saul looked behind, David stooped with his face to the earth and bowed himself. And David said to Saul, Why do you listen to men's words saying, Behold, David is seeking to hurt you? Behold, this day your eyes have seen that the Lord delivered you today into my hand in the cave. And some of them were begging me to kill you.
+
+But I said, I will not put forth my hand against my Lord, for He is the Lord's anointed. Moreover, my father, see, here is the skirt of your robe in my hand. For in that I cut off the skirt of your robe and I didn't kill you, you ought to know and see that I have neither evil nor transgression in my hands.
+
+I have not sinned against you and you are hunting my soul to take it. And the Lord's judge between me and thee and the Lord avenge me of thee, but my hand shall not be upon thee. As saith the proverb of the ancients, Wickedness proceedeth from the wicked, but my hand shall not be upon thee. Here's an interesting proverb.
+
+Wickedness proceedeth from the wicked. It is the same as saying a man sins because he is a sinner. You see, we often think because I sin, I am a sinner. No, because I am a sinner, I sin. You say, what difference? It's an important difference. Only horse thieves steal horses. If you were not a horse thief, you couldn't steal a horse no matter what the circumstances are.
+
+And stealing a horse doesn't make you a horse thief. It only proves you are. If you weren't a horse thief to begin with, you could never have stolen it. The same with sin. Sinning doesn't make you a sinner. It only proves that you are. I am a sinner by nature. If I try to deny the sinful nature, I'm calling God a liar.
+
+His truth isn't in me. All of us are sinners by nature and because we are sinners by nature, sin is the fruit or the effect or the result of what I am. I sin because I'm a sinner. Now, even so in Christ Jesus, I am now righteous. Therefore, the righteousness that I do doesn't make me righteous. I do it because I am righteous.
+
+Because of God's work in my life in making me righteous, I do now the deeds of righteousness. But we've got to keep in our minds from this fallacy of thinking because I do deeds of righteousness, I am righteous. Not so. But wickedness proceeds from the wicked. If you're wicked, wickedness is going to proceed from your life.
+
+It doesn't make you wicked. It only proves that you are wicked. And so it's an interesting proverb of the ancients. It is a true proverb indeed and is in keeping with the basic doctrines of the Scriptures. After whom, David said, is the King of Israel come out? Who are you pursuing? You're looking for a dead dog.
+
+You're trying to find a flea. The Lord therefore be judge and judge between me and you and see and plead my cause and deliver me out of your hand. It came to pass when David had made an end of his little speech that Saul said, is this the voice of my son David? And Saul lifted up his voice and wept. Oh, my son David.
+
+Oh, my son. And he said to David, you are more righteous than I for you have rewarded me good whereas I have rewarded you evil. And you have showed this day how that you have dealt well with me for as much as when the Lord had delivered me into your hand you did not kill me. For if a man finds his enemy will he let him go away well?
+
+Wherefore the Lord reward thee good for thou hast done unto me this day. And now behold, I know well that thou shalt surely be king and that the kingdom of Israel shall be established in your hand. He knew it and yet he thought to fight it all the way. He knew what God's will was and still he sought to fight the will of God.
+
+The Bible says, Woe unto him who strives with his Maker. How many times people are trying to fight what they know to be the will of God. Sad, but true. And Saul expresses, now I know that someday God's going to make you king. Kingdom's going to be established in your hand. Swear now therefore, by the Lord, that you will not cut off my children after me and that you will not destroy my name out of my father's house.
+
+And so David swearing to Saul and Saul went home, but David and his men went into the hole. Now Samuel died and all of the Israelites were gathered together and lamenting him and they buried him in his house at Ramah and David arose and went down to the wilderness of Paran. And there was a man in Maon whose possessions were in Carmel.
+
+And the man was very wealthy. He had three thousand sheep, a thousand goats. And they were shearing his sheep there in Carmel. Now Carmel is the mountain range that goes from east to west. It starts at the port city of Haifa and goes east along the area. Actually Megiddo is in a lower portion of this range of Carmel, just about the end of the range towards the east.
+
+So there Nabal, his servants were shearing his sheep. Now the name of the man was Nabal. His wife's name was Abigail. And she was a woman of good understanding and a very beautiful face. But the man was churlish and evil in his doings. And he was of the house of Caleb. And David heard in the wilderness that Nabal was shearing his sheep.
+
+And so David sent out ten young men. And David said unto the young men, Get up to Carmel and go to Nabal and greet him in my name. And thus shall you say to him who is living in such prosperity, Peace both to thee and peace to your house and peace to all that you have. And now I have heard that you have shears and now your shepherds which were with us.
+
+We did not hurt them, neither was there anything missing from them all the while that they were in Carmel. Ask your young men and they will show it to you. Wherefore, let my young men find favor in your eyes for we come in a good day. Give, I pray thee, whatsoever cometh to your hand unto your servants and to thy son David.
+
+And when David's young men came and spoke to Nabal according to all the words in the name of David, and they had finished, Nabal answered David's servants and said, Who is David? And who is the son of Jesse? There are many servants nowadays that break away from a man's master. Shall I then take my bread and my water and my meat that I have killed for my shears and give it to men whom I know not from where they are?
+
+So David's young men turned their way and they went again and they came and told David all these sayings. And David said to his men, All right, men, put on your swords. And so every man put on his sword and David also put on his sword. And they went up after David. About 400 of the men, 200 of them stayed by their stuff.
+
+And one of the young men told Abigail, Nabal's wife, saying, Behold, David sent messengers out of the wilderness to greet our master and he railed on them. But the men were very good to us and we were not hurt. Neither did we miss anything as long as we were conversant with them in the fields. They were a wall, unto us both by night and day.
+
+The whole while we were there keeping the sheep. Now therefore, know and consider what you're going to do, for evil is determined against our master and against his house. For he is such a man of Belial that a man can't speak to him. So they came to Nabal's wife and they said, Hey, David sent these servants to talk to our master.
+
+And man, he really railed on them. And that's not good because David's men were indeed kind. They were a wall to us. They didn't take anything from us. And now, man, evil's determined. We can't talk to him. No one can talk to him. He's just such a character. And so Abigail, Nabal's wife, made haste. She took two hundred loaves, two bottles of wine, five sheep that are already dressed, and five measures of parched corn, and a hundred clusters of raisins, and two hundred little cakes of dried figs.
+
+And she laid them on the donkeys. And she said to her servants, Go on before me. Behold, I come after you. But she did not tell her husband Nabal. And it was so as she rode on the donkey that she came down by the covert of the hill. And behold, David and his men were coming down against her, and she met them.
+
+Now David had said, Surely in vain have I kept all that this fellow has in the wilderness, so that nothing was missed from all that pertained to him. And he has requited me evil for good. And so more also, do God unto the enemies of David, if I leave of all that pertain to him by the morning light any man at all.
+
+So when Abigail saw David, she hurried and got off of her donkey and fell down before David on her face and bowed herself to the ground. And fell at his feet and said, Upon me, my Lord, upon me, let this iniquity be. And let your handmaid, I pray thee, speak in your audience and hear my words. Don't let, my Lord, I pray thee, regard this man of Belial, even Nabal, for as his name is, so is he.
+
+Now the word Nabal means foolish. He said, don't regard this guy. He's a fool. Like his name, so he is. His name is fool. He is. They named him well. Fool is his name, and folly is with him. But I, thine handmaid, saw not the young men of my Lord whom you did send. I didn't see them. Now therefore, my Lord, as the Lord lives, and as your soul lives, seeing the Lord has withheld thee from coming to shed blood and from avenging thyself with your own hand, now let your enemies and they that seek evil to my Lord be as Nabal.
+
+And now this blessing which your handmaid has brought unto my Lord, let it be given unto the young men that follow my Lord. I pray thee, forgive the trespass of thine handmaid. For the Lord will certainly make my Lord a sure house, because my Lord fights the battles of the Lord, and evil hath not been found in thee all thy days.
+
+Yet a man is risen to pursue thee and to seek thy soul. But the soul of my Lord shall be bound in the bundle of life with the Lord thy God. And the souls of thine enemies, them shall he sling out as out of the middle of a sling. So Abigail is there pleading with David. The beautiful woman has brought all of these things, and she is making good sense.
+
+You know, why should you avenge yourself? God will avenge you, David. He's taking care of you. And so forgive, you know, the foolishness of this foolish man. It shall come to pass when the Lord shall have done to my Lord according to all the good that he has spoken concerning thee, and shall have appointed thee the ruler over Israel, then this will not be a grief to you that you avenge yourself.
+
+This won't be on your conscience that you, you know, came up and you wiped out this guy and his family just because he didn't give the provisions that you were wanting for your men. But when the Lord shall have dealt well with my Lord, then remember your handmaid. So David said to Abigail, Blessed be the Lord God of Israel which sent you to meet me today.
+
+And blessed is the advice, and blessed are you, which have kept me today from coming to shed blood and from avenging myself with my own hand. Now, to me this shows the greatness of David. You know, some men are so dumb, that they can't take advice from women. You know, they think, Oh, I'm the man, and you know, and they're not willing to listen to anybody much.
+
+And really, oftentimes not a woman. But here it really shows the greatness of David. He said, Ah, blessed be thou the Lord. That's good advice. Blessed is your advice. You're just a blessed person. Thank you for coming and stopping me from avenging myself, shedding blood, avenging myself. And he saw that the advice was sound.
+
+He saw that it was good. He respected it. He admired her for it. And of course, many characteristics about Abigail. Very, very sharp. Good woman. She'll be an interesting one to meet in heaven and to share with and all. She's just a very outstanding person indeed. For in very deed, as the Lord God of Israel lives, which has kept me back from hurting thee, except you had come to meet me, surely there had not been to Nabal anyone left in the family.
+
+So David received of her hand that which she had brought to him and said to her, Go up in peace to your house. I have hearkened to your voice. I have accepted what you have said. So Abigail came to Nabal and behold, he held a feast in his house like the feast of a king. And Nabal's heart was merry within him for he was very drunk.
+
+Therefore, she did not tell him anything less or more until the morning. But it came to pass in the morning when the wine was gone out of Nabal, sobering up, his wife told him of these things that his heart died within him and he became as a stone. He was so angry. It so upset him what she did. He just froze.
+
+His heart died with him and actually he probably had a heart attack. And it came to pass ten days afterwards that he died. The Lord smote Nabal and he died. And when David heard that Nabal was dead, he said, Blessed be the Lord that hath pleaded the cause of my reproach from the hand of Nabal and hath kept his servant from evil.
+
+For the Lord hath returned the wickedness of Nabal upon his own head. And David sent and communed with Abigail that she might become his wife. And when the servants of David were come to Abigail, to Carmel, they spake unto her, saying, David sent us to thee to take thee to him for a wife. And she arose and bowed herself on her face to the earth and said, Behold, let thine handmaid be a servant to wash the feet of the servants of my Lord.
+
+Now here again, showing really the greatness of this woman, Abigail. She said, Oh, let me wash your feet. You know, the feet of the servants of my Lord. So they were just David's servants, but yet a very gracious woman and a marvelous woman indeed. So Abigail hurried and arose and rode on the donkey with five of her den.
+
+With five of her damsels that went after her. And she went after the messengers of David and became his wife. Now David also took Ahinoam of Jezreel. And they were also both of them his wives. But Saul had given Michal, his daughter, David's wife, to Phalti, the son of Laish, which was of Galem. And so the whole, you know, crazy mixed up marriage situation that began, which of course Solomon, when he took over as king, took to the extremes.
+
+Foolish extremes.

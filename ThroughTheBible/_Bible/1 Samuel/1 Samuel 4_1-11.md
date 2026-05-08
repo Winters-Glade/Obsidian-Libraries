@@ -1,0 +1,32 @@
+---
+title: "Bible: 1 Samuel 4:1-11"
+tags: [bible, 1samuel, history, ch4]
+book: 1 Samuel
+chapter: 4
+verses: "1-11"
+category: History
+---
+
+
+# 1 Samuel 4:1-11
+
+
+## Passage
+
+> **1** And the word of Samuel came to all Israel. Now Israel went out against the Philistines to battle, and pitched beside Ebenezer: and the Philistines pitched in Aphek. {came: or, came to pass: Heb. was} **2** And the Philistines put themselves in array against Israel: and when they joined battle, Israel was smitten before the Philistines: and they slew of the army in the field about four thousand men. {they joined...: Heb. the battle was spread} {army: Heb. array} **3** And when the people were come into the camp, the elders of Israel said, Wherefore hath the LORD smitten us to day before the Philistines? Let us fetch the ark of the covenant of the LORD out of Shiloh unto us, that, when it cometh among us, it may save us out of the hand of our enemies. {fetch: Heb. take unto us} **4** So the people sent to Shiloh, that they might bring from thence the ark of the covenant of the LORD of hosts, which dwelleth {between} the cherubims: and the two sons of Eli, Hophni and Phinehas, {were} there with the ark of the covenant of God. **5** And when the ark of the covenant of the LORD came into the camp, all Israel shouted with a great shout, so that the earth rang again. **6** And when the Philistines heard the noise of the shout, they said, What {meaneth} the noise of this great shout in the camp of the Hebrews? And they understood that the ark of the LORD was come into the camp. **7** And the Philistines were afraid, for they said, God is come into the camp. And they said, Woe unto us! for there hath not been such a thing heretofore. {heretofore: Heb. yesterday, or, the third day} **8** Woe unto us! who shall deliver us out of the hand of these mighty Gods? these {are} the Gods that smote the Egyptians with all the plagues in the wilderness. **9** Be strong, and quit yourselves like men, O ye Philistines, that ye be not servants unto the Hebrews, as they have been to you: quit yourselves like men, and fight. {quit...: Heb. be men} **10** And the Philistines fought, and Israel was smitten, and they fled every man into his tent: and there was a very great slaughter; for there fell of Israel thirty thousand footmen. **11** And the ark of God was taken; and the two sons of Eli, Hophni and Phinehas, were slain. {were slain: Heb. died}
+>
+> — 1 Samuel 4:1-11 (KJV)
+
+## Referenced By
+
+- [[Ark of the Covenant|Ark_of_the_Covenant]]
+
+## Cross-References
+
+- [[1 Samuel 2.md]]
+- [[1 Samuel 2_1-10.md]]
+- [[1 Samuel 2_11-36.md]]
+- [[_Bible/1 Samuel/1 Samuel 2_12-17.md]]
+- [[1 Samuel 3_1-21.md]]
+- [[1 Samuel 5_1-12.md]]
+- [[1 Samuel 6_1-21.md]]

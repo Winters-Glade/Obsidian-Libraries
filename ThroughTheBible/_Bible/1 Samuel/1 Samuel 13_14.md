@@ -1,0 +1,36 @@
+---
+title: "Bible: 1 Samuel 13:14"
+tags: [bible, 1samuel, history, ch13]
+book: 1 Samuel
+chapter: 13
+verses: "14"
+category: History
+---
+
+
+# 1 Samuel 13:14
+
+
+## Passage
+
+> **14** But now thy kingdom shall not continue: the LORD hath sought him a man after his own heart, and the LORD hath commanded him {to be} captain over his people, because thou hast not kept {that} which the LORD commanded thee.
+>
+> — 1 Samuel 13:14 (KJV)
+## Referenced By
+
+- [[C2000/Notes/1_Samuel/1 Samuel 11-16.md|1 Samuel 11-16]]
+- [[C2000/Notes/1_Samuel/1 Samuel 17-25.md|1 Samuel 17-25]]
+- [[C2000/Notes/1_Samuel/1 Samuel 26-31.md|1 Samuel 26-31]]
+- [[Gods Salvation 1 Samuel 17_45.md]]
+- [[Man After Gods Heart Acts 13_22.md]]
+
+## Cross-References
+
+- [[1 Samuel 11.md]]
+- [[1 Samuel 11_1-11.md]]
+- [[1 Samuel 11_1-15.md]]
+- [[1 Samuel 12_1-25.md]]
+- [[1 Samuel 12_16-25.md]]
+- [[1 Samuel 12_23.md]]
+- [[1 Samuel 14_1-23.md]]
+- [[1 Samuel 14_1-52.md]]

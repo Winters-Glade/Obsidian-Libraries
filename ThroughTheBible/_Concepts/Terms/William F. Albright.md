@@ -1,0 +1,18 @@
+---
+title: "William F. Albright"
+tags: [concept, terms]
+aliases: [william f. albright]
+---
+
+# William F. Albright
+
+**William F. Albright** is a concept referenced in the Through the Bible with Pastor Chuck Smith series (C2000 and T2000).
+
+## Backlinks
+
+The following notes reference [[William F. Albright]]:
+
+- [[Genesis 27-28.md]]
+
+---
+*This concept note was auto-generated to resolve wikilink references in the vault.*

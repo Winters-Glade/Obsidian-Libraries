@@ -1,0 +1,32 @@
+---
+title: "Bible: Genesis 18:23-33"
+tags: [bible, genesis, law, ch18]
+book: Genesis
+chapter: 18
+verses: "23-33"
+category: Law
+---
+
+
+# Genesis 18:23-33
+
+
+## Passage
+
+> **23** And Abraham drew near, and said, Wilt thou also destroy the righteous with the wicked? **24** Peradventure there be fifty righteous within the city: wilt thou also destroy and not spare the place for the fifty righteous that {are} therein? **25** That be far from thee to do after this manner, to slay the righteous with the wicked: and that the righteous should be as the wicked, that be far from thee: Shall not the Judge of all the earth do right? **26** And the LORD said, If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes. **27** And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which {am but} dust and ashes: **28** Peradventure there shall lack five of the fifty righteous: wilt thou destroy all the city for {lack of} five? And he said, If I find there forty and five, I will not destroy {it}. **29** And he spake unto him yet again, and said, Peradventure there shall be forty found there. And he said, I will not do {it} for forty's sake. **30** And he said {unto him}, Oh let not the Lord be angry, and I will speak: Peradventure there shall thirty be found there. And he said, I will not do {it}, if I find thirty there. **31** And he said, Behold now, I have taken upon me to speak unto the Lord: Peradventure there shall be twenty found there. And he said, I will not destroy {it} for twenty's sake. **32** And he said, Oh let not the Lord be angry, and I will speak yet but this once: Peradventure ten shall be found there. And he said, I will not destroy {it} for ten's sake. **33** And the LORD went his way, as soon as he had left communing with Abraham: and Abraham returned unto his place.
+>
+> — Genesis 18:23-33 (KJV)
+## Referenced By
+
+- [[Ezekiel|I Was Left, Ezekiel 9-8]]
+
+## Cross-References
+
+- [[Genesis 16_1-16]]
+- [[Genesis 16_1–4]]
+- [[Genesis 17_1-27]]
+- [[Genesis 17_10–14]]
+- [[Genesis]]
+- [[Genesis 19_1-29]]
+- [[Genesis 19_1-3]]
+- [[Genesis 19_10-11]]

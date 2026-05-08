@@ -1,0 +1,18 @@
+---
+title: "Austen Henry Layard"
+tags: [concept, terms]
+aliases: [austen henry layard]
+---
+
+# Austen Henry Layard
+
+**Austen Henry Layard** is a concept referenced in the Through the Bible with Pastor Chuck Smith series (C2000 and T2000).
+
+## Backlinks
+
+The following notes reference [[Austen Henry Layard]]:
+
+- [[Genesis.md]]
+
+---
+*This concept note was auto-generated to resolve wikilink references in the vault.*
