@@ -1,15 +1,15 @@
 # Through the Bible with Pastor Chuck Smith
 
-> A comprehensive Obsidian knowledge base for the verse-by-verse teaching ministry of **Pastor Chuck Smith** — covering the entire Bible through the *Through the Bible* (C2000) radio series and topical teachings (T2000).
+> A comprehensive Obsidian knowledge base for the verse-by-verse teaching ministry of **Pastor Chuck Smith** - covering the entire Bible through the *Through the Bible* (C2000) radio series and topical teachings (T2000).
 
 ## Overview
 
 This vault contains detailed notes and transcripts from Pastor Chuck Smith's *Through the Bible* teaching series, one of the most comprehensive verse-by-verse Bible study resources ever created. With over 7,500 markdown files, it covers:
 
-- **C2000 Series** — Verse-by-verse teaching through the entire Bible (notes + full transcripts)
-- **T2000 Series** — 600+ topical teachings on specific subjects, doctrines, and practical Christian living
-- **Full Bible Index** — Every verse cross-referenced to its corresponding teaching
-- **Concept Indexes** — Organized by People, Places, Events, Terms, Doctrines, and Biblical References
+- **C2000 Series** - Verse-by-verse teaching through the entire Bible (notes + full transcripts)
+- **T2000 Series** - 600+ topical teachings on specific subjects, doctrines, and practical Christian living
+- **Full Bible Index** - Every verse cross-referenced to its corresponding teaching
+- **Concept Indexes** - Organized by People, Places, Events, Terms, Doctrines, and Biblical References
 
 ## Vault Structure
 
@@ -41,7 +41,7 @@ This vault contains detailed notes and transcripts from Pastor Chuck Smith's *Th
 ## Included Configuration
 
 - **Theme:** Everforest Enchanted
-- **Plugins:** Style Settings, Edge TTS (text-to-speech for listening to notes), Broken Links
+- **Plugins:** Style Settings, Edge TTS (text-to-speech for listening to notes)
 
 ## Origin
 
@@ -49,8 +49,8 @@ This vault was compiled from the **Through the Bible** radio ministry of **Pasto
 
 The C2000 and T2000 series are available freely through:
 
-- **The Word For Today** — [twft.com](http://twft.com)
-- **YouTube (The Word For Today)** — [youtube.com/@CalvaryChapelTWFT](https://www.youtube.com/@CalvaryChapelTWFT)
+- **The Word For Today** - [twft.com](http://twft.com)
+- **YouTube (The Word For Today)** - [youtube.com/@CalvaryChapelTWFT](https://www.youtube.com/@CalvaryChapelTWFT)
 
 ## Getting Started
 
