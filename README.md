@@ -84,7 +84,7 @@ These notes were compiled from the [History102 YouTube channel](https://www.yout
 |---|---|
 | **📄 Notes** | 7,562 interconnected markdown files |
 | **🗂️ Structure** | Full Bible index, verse-by-verse notes, topical teachings, concept indexes |
-| **📏 Size** | ~51 MB |
+| **📏 Size** | ~31 MB |
 | **🎨 Theme** | Everforest Enchanted (with Style Settings, Edge TTS plugins) |
 | **📅 Coverage** | All 66 books of the Bible (Genesis - Revelation) |
 

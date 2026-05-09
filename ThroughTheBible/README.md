@@ -17,7 +17,7 @@ This vault contains detailed notes and transcripts from Pastor Chuck Smith's *Th
 |-----------|----------|
 | `_HOME.md` | Main entry point with navigation |
 | `_INDEX.md` | Complete alphabetical index of all notes |
-| `_BIBLE_INDEX.md` | 173 KB verse-by-verse index linked to relevant notes |
+| `_BIBLE_INDEX.md` | Verse-by-verse index linked to relevant notes |
 | `_REFERENCES.md` | Source references and citations |
 | `_Bible/` | 66 book-by-book directories (Genesis through Revelation) |
 | `C2000/Notes/` | Verse-by-verse study notes organized by Bible book |
@@ -31,12 +31,11 @@ This vault contains detailed notes and transcripts from Pastor Chuck Smith's *Th
 
 | | |
 |---|---|
-| **Total files** | 7,598 |
-| **Markdown notes** | 7,562 |
+| **Markdown notes** | 7,500+ |
 | **Bible books covered** | All 66 (Genesis - Revelation) |
 | **C2000 chapters** | Full verse-by-verse coverage |
 | **T2000 topics** | 600+ |
-| **Vault size** | ~51 MB |
+| **Vault size** | ~31 MB |
 
 ## Included Configuration
 
